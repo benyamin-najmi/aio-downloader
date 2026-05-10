@@ -7,6 +7,558 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 01:43
+---
+
+## VahidOOnLine — post 239402
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239402_1778451222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «نیویورک تایمز»، تیم فوتبال بارسلونا با پیروزی ۲ بر صفر در مقابل رقیب دیرینه خود، رئال مادرید، برای دومین سال پیاپی به مقام قهرمانی لالیگا دست یافت. در این دیدار سرنوشت‌ساز که در فضای پرالتهاب ال‌کلاسیکو برگزار شد، مارکوس رشفورد با یک ضربه آزاد تماشایی در دقایق ابتدایی قفل دروازه کهکشانی‌ها را شکست و در ادامه فران تورس با به ثمر رساندن گل دوم، پیروزی و قهرمانی آبی‌اناری‌ها را قطعی کرد. شاگردان هانسی فلیک در حالی که تنها به یک امتیاز برای تثبیت جایگاه خود نیاز داشتند، موفق شدند برای نخستین بار در تاریخ این رقابت‌ها، جشن قهرمانی خود را با پیروزی در دربی بزرگ اسپانیا مقابل چشمان هوادارانشان برپا کنند؛ این در حالی بود که بازیکنان دو تیم علی‌رغم درگیری‌های معمول مسابقه، در پایان بازی با روحیه ورزشی به خوش‌وبش و دست دادن با یکدیگر پرداختند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239401
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239401_1778451223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی اعلام کرد دولت دونالد ترامپ از «همه ایده‌ها» برای کاهش قیمت بنزین استقبال می‌کند؛ از جمله تعلیق مالیات فدرال بر سوخت.
+
+این اظهارات در شرایطی مطرح شده که قیمت بنزین در آمریکا افزایش یافته و میانگین ملی آن روز یکشنبه به ۴.۵۲ دلار در هر گالن رسیده است.
+
+به گزارش ان‌بی‌سی، این رقم نشان می‌دهد بهای بنزین از زمان آغاز جنگ ایران در نهم اسفند بیش از ۵۰ درصد رشد کرده است.
+
+رایت در پاسخ به پرسشی درباره تعلیق مالیات فدرال بنزین، که حدود ۱۸ سنت در هر گالن است، گفت دولت از هر اقدامی که بتواند قیمت‌ها را در جایگاه‌های سوخت کاهش دهد و فشار بر مصرف‌کنندگان را کم کند، حمایت می‌کند.
+
+او همچنین درباره احتمال رسیدن قیمت‌ها به ۵ دلار در هر گالن از پیش‌بینی خودداری کرد و گفت تعیین قیمت انرژی در کوتاه‌مدت یا میان‌مدت دشوار است.
+
+رایت افزود تمرکز دولت بر پایان دادن به درگیری چند دهه‌ای با جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239400
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239400_1778451223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان وین
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239399
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239399_1778451225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری صداوسیما روز یکشنبه، ۲۰ اردیبهشت‌ماه، گزارش داد، طرح تهران که ترامپ آن را «غیرقابل قبول» خواند، بر «ضرورت پایان تحریم‌ها، آزادسازی اموال توقیف شده، پرداخت خسارت‌های جنگ و حاکمیت جمهوری اسلامی بر تنگه هرمز» تاکید دارد. براساس این گزارش، جمهوری اسلامی همچنین بر «یکپارچگی جبهه مقاومت تاکید دارد». پیش از این، ترامپ با انتشار پیامی در «تروث سوشال» پاسخ تهران به پیشنهاد واشنگتن را «کاملا غیرقابل قبول» خواند و اعلام کرد که «از پاسخ به‌اصطلاح نمایندگان ایران خوشم نیامد».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239398
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239398_1778451225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️لیندزی گراهام، سناتور جمهوری‌خواه، در واکنش به بن‌بست دیپلماتیک اخیر میان واشنگتن و تهران، ضمن حمایت از موضع قاطع دونالد ترامپ، خواستار تغییر رویکرد ایالات متحده در قبال جمهوری اسلامی شد. گراهام در حساب کاربری خود در اکس نوشت: «من از تلاش‌های صادقانه رئیس‌جمهور ترامپ برای یافتن راهکاری دیپلماتیک جهت تغییر رفتار رژیم تروریستی ایران قدردانی می‌کنم؛ اما با توجه به حملات مداوم آن‌ها به کشتیرانی بین‌المللی، حملات پیاپی به متحدان ما در خاورمیانه و اکنون پاسخ کاملا غیرقابل‌قبول به پیشنهاد دیپلماتیک آمریکا، به عقیده من زمان تغییر مسیر فرا رسیده است.» این سناتور پرنفوذ با اشاره به ضرورت اتخاذ اقدامات سخت‌گیرانه‌تر تاکید کرد که در شرایط کنونی، اجرای طرح «پروژه آزادی پلاس» گزینه‌ای بسیار مناسب به نظر می‌رسد. پیش از این، رئیس جمهوری آمریکا گفته بود اگر مذاکرات با تهران اتفاق نیفتد، ممکن است به پروژه آزادی برگردیم، اما این «پروژه آزادی پلاس» خواهد بود، به معنای پروژه آزادی به علاوه چیزهای دیگر.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239397
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239397_1778451225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه سپهری، زندانی سیاسی محبوس در زندان وکیل‌آباد مشهد، در حالی دوران حبس خود را سپری می‌کند که به گفته فعالان حقوق بشر با مشکلات جدی جسمی روبه‌رو است.
+این فعال سیاسی ۶۱ ساله که سابقه جراحی قلب باز دارد، بیش از هزار روز است در زندان به‌سر می‌برد و گزارش‌ها حاکی از آن است که در این مدت دسترسی کافی و مستمر به خدمات درمانی تخصصی نداشته است.
+منابع حقوق بشری از افت شدید فشار خون، تپش‌های نامنظم قلب و دردهای مزمن در ناحیه قفسه سینه و دست‌های او خبر داده‌اند.
+گفته می‌شود خانم سپهری پس از چند مورد بستری کوتاه‌مدت، پیش از تکمیل روند درمان به بند بازگردانده شده است.
+فاطمه سپهری نخستین‌بار در سال ۱۳۹۸ پس از امضای بیانیه‌ای موسوم به «بیانیه ۱۴ نفر» بازداشت شد. او در جریان اعتراضات سراسری سال ۱۴۰۱ دوباره بازداشت و از سوی دادگاه انقلاب مشهد به ۱۸ سال حبس محکوم شد.
+در روزهای اخیر کاربران شبکه‌های اجتماعی با یک طرح گرافیکی «صدای فاطمه سپهری باش» خواستار رسیدگی فوری پزشکی و آزادی او شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239396
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239396_1778451226.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پس از بیش از ۱۵ سال توقف فعالیت به دلیل تحریم‌های بین‌المللی، غول‌های پرداخت جهانی، «ویزا» و «مسترکارت»، به طور رسمی فعالیت خود را در سوریه آغاز کردند. در تصاویر منتشر شده در شبکه‌های اجتماعی، احمد الشرع، رئیس جمهوری سوریه، با کارت بانکی بین‌المللی، قهوه سفارش می‌دهد. این بازگشت که از آن به عنوان بزرگ‌ترین گام برای ادغام مجدد مالی سوریه در نظام جهانی یاد می‌شود، از اوایل ماه مه کلید خورد. بر اساس گزارش‌ها، مسترکارت در روز جمعه، هشتم مه (۱۸ اردیبهشت‌ماه) مراحل فنی خود را تکمیل کرد و تنها دو روز بعد، بانک ملی قطر (QNB) به عنوان نخستین پیشگام، خدمات پذیرش کارت و پرداخت‌های دیجیتال را در خاک سوریه فعال کرد. این تحول بزرگ، انزوای بانکی سوریه را که از اوایل دهه ۲۰۱۰ آغاز شده بود، پایان داد و اکنون کارت‌های صادر شده در این کشور در سطح جهانی و کارت‌های بین‌المللی در داخل سوریه قابل استفاده هستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239395
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239395_1778451227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای دریافت‌شده نشان می‌دهد جمعی از ایرانیان مقیم اورلاندو در ایالت فلوریدا، روز یک‌شنبه ۲۰ اردیبهشت‌ماه، در پی فراخوان شاهزاده رضا پهلوی، در اعتراض به اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران تجمع کردند و خطاب به دونالد ترامپ شعار «اعتماد نکنید، معامله نکنید» سر دادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239394
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239394_1778451228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+خبرگزاری‌های حکومتی گزارش دادند ارتش جمهوری اسلامی ساعتی پیش «یک فروند پهپادشناسایی دشمن متجاوز» را در منطقه جنوب غرب منهدم کرده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90509
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90509_1778451229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: جمهوری اسلامی آخرین پیشنهاد آمریکا رو رد کرد و پیشنهاد متقابل خود را ارائه داد.
+
+تهران خواستار رفع تحریم‌ها، آزادسازی دارایی‌های مسدود شده ایران، جبران خسارات ناشی از جنگ و به رسمیت شناختن نقش ایران در تنگه هرمز شد، در حالی که آمریکا پاسخ رو «غیرقابل قبول» دانست.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90508
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90508_1778451230.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی قلهکی، خبرنگار:
+ایران بر «پایانِ جنگ»، «رفع تحریم» و «رفعِ محاصره دریایی» متمرکز است ولی طرفِ مقابل حتما «400 کیلو اورانیوم» رو میخواد!
+
+از این پس باید منتظر نقطه ورود به تنش نظامی بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90507
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90507_1778451230.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ به اکسیوس: با نتانیاهو درباره پاسخ ایران گفتوگو کردم. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90506
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90506_1778451231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو: وقتشه خودمون رو از کمک‌های مالی و نظامی بقیه بی‌نیاز کنیم.
+
++ این حرفش بوی جنگ بدون حضور آمریکا میده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90505
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90505_1778451231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ به اکسیوس: با نتانیاهو درباره پاسخ ایران گفتوگو کردم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90504
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90504_1778451232.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندزی گراهام:
+برای من آشکار است که ایران معتقده که رئیس جمهور ترامپ در مورد گزینه‌های نظامی آینده بلوف میزنه.
+
+به درک من از اوضاع، این میتونه یک اشتباه فاجعه‌بار از سوی رهبری ایران باشه. منتظر باشید.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4555
+
+<div align="center">
+  <img src="telegram/content/DEJradio_4555_1778451233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+⭕️ براساس گزارش منابع محلی یکشنبه شب ۲۰ اردیبهشت ۱۴۰۵ توپ‌های پدافند در اندیمشک و دزفول برای مقابله با پهپادهای ناشناس فعال شدند.
+
+#پهپاد #دزفول #اندیمشک
+@DEJradio
+</div>
+
+## mamlekate — post 103499
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103499_1778451233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 دزفول توی جاده کمربندی سمت زیبا شهر ساعت ۹:۳۰ شب
+
+
+📞 دزفول از ساعت ۹و نیم صدای ضدهوایی و چند انفجار شنیده شد
+
+@mamlekate
+</div>
+
+## mamlekate — post 103498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 سلام، از ساعت ۵ تا ۶ به سه تا از پمپ بنزینای اصفهان رفتم هیچ کدومشون کارت آزاد ندادن بنزین بزنم
+
+
+📞 ساعت ۴ بعد از ظهر رفتم بنزین بزنم میگفت بنزین جایگاه تموم شده که عجیب بود. یکی از پمپ بنزین های شهرستان هم کلا تعطیل کرده بود. یکی از شهرستان های کرمانشاه.
+
+ @mamlekate
+</div>
+
+## IranIntlTV — post 336541
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336541_1778451234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی اعلام کرد دولت دونالد ترامپ از «همه ایده‌ها» برای کاهش قیمت بنزین استقبال می‌کند؛ از جمله تعلیق مالیات فدرال بر سوخت.
+
+این اظهارات در شرایطی مطرح شده که قیمت بنزین در آمریکا افزایش یافته و میانگین ملی آن روز یکشنبه به ۴.۵۲ دلار در هر گالن رسیده است.
+
+به گزارش ان‌بی‌سی، این رقم نشان می‌دهد بهای بنزین از زمان آغاز جنگ ایران در نهم اسفند بیش از ۵۰ درصد رشد کرده است.
+
+رایت در پاسخ به پرسشی درباره تعلیق مالیات فدرال بنزین، که حدود ۱۸ سنت در هر گالن است، گفت دولت از هر اقدامی که بتواند قیمت‌ها را در جایگاه‌های سوخت کاهش دهد و فشار بر مصرف‌کنندگان را کم کند، حمایت می‌کند.
+
+او همچنین درباره احتمال رسیدن قیمت‌ها به ۵ دلار در هر گالن از پیش‌بینی خودداری کرد و گفت تعیین قیمت انرژی در کوتاه‌مدت یا میان‌مدت دشوار است.
+
+رایت افزود تمرکز دولت بر پایان دادن به درگیری چند دهه‌ای با جمهوری اسلامی است.
+https://iranintl.com/202605106125
+</div>
+
+## IranIntlTV — post 336540
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336540_1778451235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «سخنان تند ترامپ، درست در روزی که جمهوری اسلامی پاسخ خود را به پیشنهاد آمریکا تحویل داده، می‌تواند نشانه نارضایتی واشینگتن از محتوای این پاسخ باشد. استفاده ترامپ از عباراتی مثل سال‌ها ما را بازی دادند و دیگر اجازه نمی‌دهیم به ما بخندند نشان می‌دهد صبر آمریکا نسبت به روند فعلی به شدت کاهش پیدا کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336539
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336539_1778451237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه سپهری، زندانی سیاسی محبوس در زندان وکیل‌آباد مشهد، در حالی دوران حبس خود را سپری می‌کند که به گفته فعالان حقوق بشر با مشکلات جدی جسمی روبه‌رو است.
+این فعال سیاسی ۶۱ ساله که سابقه جراحی قلب باز دارد، بیش از هزار روز است در زندان به‌سر می‌برد و گزارش‌ها حاکی از آن است که در این مدت دسترسی کافی و مستمر به خدمات درمانی تخصصی نداشته است.
+منابع حقوق بشری از افت شدید فشار خون، تپش‌های نامنظم قلب و دردهای مزمن در ناحیه قفسه سینه و دست‌های او خبر داده‌اند.
+گفته می‌شود خانم سپهری پس از چند مورد بستری کوتاه‌مدت، پیش از تکمیل روند درمان به بند بازگردانده شده است.
+فاطمه سپهری نخستین‌بار در سال ۱۳۹۸ پس از امضای بیانیه‌ای موسوم به «بیانیه ۱۴ نفر» بازداشت شد. او در جریان اعتراضات سراسری سال ۱۴۰۱ دوباره بازداشت و از سوی دادگاه انقلاب مشهد به ۱۸ سال حبس محکوم شد.
+در روزهای اخیر کاربران شبکه‌های اجتماعی با یک طرح گرافیکی «صدای فاطمه سپهری باش» خواستار رسیدگی فوری پزشکی و آزادی او شده‌اند.
+https://iranintl.com/202605103770
+</div>
+
+## IranIntlTV — post 336538
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336538_1778451237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت پاسخ نمایندگان جمهوری اسلامی را خوانده و آن را «کاملا غیرقابل قبول» می‌داند.
+
+ترامپ پیش‌تر تاکید کرده بود واشینگتن نباید اجازه دهد ایران به سلاح هسته‌ای دست پیدا کند و آمریکا در صورت نیاز، به اهداف دیگری در ایران حمله خواهد کرد.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336537
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336537_1778451239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «خشم ترامپ از طولانی شدن مذاکرات با جمهوری اسلامی در سخنان یکشنبه‌اش آشکار بود؛ او گفت جمهوری اسلامی ۴۷ سال آمریکا و جهان را بازی داده است. حالا که ترامپ پاسخ جمهوری اسلامی را غیرقابل قبول خوانده، همه منتظرند ببینند مسیر بعدی واشینگتن تلاش دوباره برای توافق است یا آغاز حملات نظامی.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336536
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336536_1778451240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای دریافت‌شده نشان می‌دهد جمعی از ایرانیان مقیم اورلاندو در ایالت فلوریدا، روز یک‌شنبه ۲۰ اردیبهشت‌ماه، در پی فراخوان شاهزاده رضا پهلوی، در اعتراض به اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران تجمع کردند و خطاب به دونالد ترامپ شعار «اعتماد نکنید، معامله نکنید» سر دادند.
+</div>
+
+## Shin_Persian — post 5947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 21:53:45 UTC
+
+Explosions heard in Soran district, Erbil province
+#Iraq 🇮🇶
+
+فارسی
+
+صدای انفجارهایی در شهرستان سوران، استان اربیل شنیده شد
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105283
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105283_1778451242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان وین
+</div>
+
+## ManotoTV — post 105282
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105282_1778451243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+خبرگزاری‌های حکومتی گزارش دادند ارتش جمهوری اسلامی ساعتی پیش «یک فروند پهپادشناسایی دشمن متجاوز» را در منطقه جنوب غرب منهدم کرده است.
+</div>
+
+## FarsiVOA — post 217382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ: دیر یا زود اورانیوم غنی شدە را از ایران خارج می‌کنیم
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217381
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اقدام جمهوری اسلامی در «قطع اینترنت» باعث اخراج صدها نفر از کارکنان شرکت‌های فناوری در ایران شده است
+
+◾️روزنامه «نیویورک تایمز» روز یکشنبه ۲۰ اردیبهشت در گزارشی نوشت که تشدید بحران اقتصادی در ایران، در پی عملیات نظامی آمریکا و اسرائیل و همچنین محاصره دریایی تنگه هرمز، و قطعی اینترنت باعث اخراج گسترده کارکنان در بخش‌های مختلف اقتصادی شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/nytimes-report-iranian-loss-of-job-and-income-economic-fury/8148531.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217380
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ به آکسیوس: با نتانیاهو درباره پاسخ جمهوری اسلامی صحبت کردم
+
+◾️آکسیوس در گزارشی گفت که دونالد ترامپ، رئيس‌جمهوری آمریکا، روز یکشنبه ۲۰ اردیبهشت در مصاحبه‌ای کوتاه به باراک راوید، خبرنگار این سایت گفت که او با بنیامین نتانیاهو، نخست‌وزیر اسرائیل، درباره پاسخ جمهوری اسلامی به آمریکا و موضوعات دیگر صحبت کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8148544.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تازه‌ترین واکنش‌های کنگره به تحولات تنگه هرمز
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217378
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️موضع سخت آمریکا در برابر پاسخ مبهم جمهوری اسلامی؛ مسیر بحران به چه سمتی می‌رود؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217377
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پاسخ جمهموری اسلامی به پیشنهاد آمریکا؛ جنگ یا توافق در گفتگو با ابراهیم روشندل دیپلمات پیشین
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 13866
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13866_1778451244.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند رضاشاه، پدر ایران نوین 🔥
+</div>
+
+## BBCPersian — post 280698
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_280698_1778451244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کانال تلگرامی وحید آنلاین عصر یکشنبه مجموعه‌ای پیام‌های دریافتی خود از مخاطبانش در دزفول و اندیمشک را منتشر کرده که حکایت از فعالیت پدافند ضدهوایی در این دو شهر جنوبی ایران دارد.
+
+بیشتر پیغام‌ها حوالی ساعت ۱۰ شب به وقت محلی گزارش شده و از فعالیت پدافندی برای «حدود ۲۰ دقیقه» حکایت دارد.
+
+در همین حال، خبرگزاری فارس - نزدیک به سپاه پاسداران - به نقل از منابع ارتش ایران نوشته است: «یک فروند پهپاد دشمن متجاوز، ساعتی پیش توسط شبکۀ یکپارچۀ پدافند هوایی در منطقۀ جنوب غرب منهدم شد.»
+
+عکس آرشیوی از رویترز
+
+https://bbc.in/4tY60Lv
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا پارسال هر کس مهاجرت کرده به معنای واقعی کلمه «فلنگ»‌رو بسته.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389242
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389242_1778451245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و هم مادر☕️ ریاکار
+
++ اون ورژن عرق خوری و صورتی پوشی‌تون جذاب‌تر بود
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389241
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389241_1778451245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شادمانی هاپو از نبودن در خاورمیانه
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105283
+
+<div align="center">
+  <a href="telegram/content/manototv_105283_1778451245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان وین
+</div>
+
+## manototv — post 105282
+
+<div align="center">
+  <a href="telegram/content/manototv_105282_1778451247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+خبرگزاری‌های حکومتی گزارش دادند ارتش جمهوری اسلامی ساعتی پیش «یک فروند پهپادشناسایی دشمن متجاوز» را در منطقه جنوب غرب منهدم کرده است.
+</div>
+
+## alonews — post 119174
+
+<div align="center">
+  <a href="telegram/content/alonews_119174_1778451247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما:
+ایران آخرین پیشنهاد آمریکا را رد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119173
+
+<div align="center">
+  <a href="telegram/content/alonews_119173_1778451248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارک فاکس، معاون سابق فرماندهی مرکزی آمریکا :
+آتش‌بس با ایران به اسرائیل اجازه داد تا ذخایر مهمات خودشو دوباره پر کنه و اطلاعات بیشتری جمع‌آوری کنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119172
+
+<div align="center">
+  <a href="telegram/content/alonews_119172_1778451248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کمتر از نیم ساعت به باز شدن بازارهای آسیا باقی مونده و قدم بعدی ترامپ در مورد ایران هنوز اعلام نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 00:59
 ---
 
