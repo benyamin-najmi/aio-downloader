@@ -1,10 +1,256 @@
 # خواننده تلگرام
 
 <!-- TOP_NAV START -->
-<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/ProAlit/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+<div dir="rtl" style="text-align:left; margin-bottom:10px;"><a href="https://github.com/benyamin-najmi/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
 <!-- TOP_NAV END -->
 
 <!-- MSG START -->
+
+---
+📅 بروزرسانی: 1405/02/20 16:07
+---
+
+## VahidOOnLine — post 239273
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239273_1778416626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی ایرنا گزارش داد که پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، روز یکشنبه به میانجی پاکستانی ارسال شده است.
+
+روز شنبه دونالد ترامپ گفته بود که انتظار دارد هر چه سریع‌تر پاسخ جمهوری اسلامی را دریافت کند.
+
+پیش‌تر سخنگوی وزارت خارجه جمهوری اسلامی اعلام کرده بود دیدگاه‌ها و ملاحظات مقام‌های ایرانی راجع به پیشنهادهای آمریکا، بعد از تکمیل بررسی‌ها و جمع‌بندی نهایی، ارسال خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239272
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239272_1778416627.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شمارش معکوس برای افتتاح جشنواره کن؛
+پوستر ۲۰۰ کیلویی جشنواره نصب شد
+
+♦️همزمان با آغاز شمارش معکوس برای افتتاح هفتادونهمین دوره جشنواره فیلم کن، کارگران در یکی از نمادین‌ترین سنت‌های سالانه این رویداد سینمایی، پوستر رسمی جشنواره را بر فراز ساختمان «کاخ جشنواره‌ها» در شهر کن فرانسه نصب کردند.
+پوستر امسال با تصویری از فیلم ماندگار «تلما و لوییز» طراحی شده و حدود ۲۵۰ متر مربع مساحت و نزدیک به ۲۰۰ کیلوگرم وزن دارد.
+فیلم «تلما و لوییز» (Thelma & Louise) ساخته ریدلی اسکات در سال ۱۹۹۱، یکی از ماندگارترین آثار جاده‌ای و فمینیستی تاریخ سینما به شمار می‌رود؛ فیلمی با بازی درخشان جینا دیویس و سوزان ساراندون در نقش دو زن که در جریان سفری کوتاه، ناخواسته وارد مسیری پرتنش و فرار از قانون می‌شوند. این اثر که به‌دلیل روایت متفاوت از استقلال زنان، خشونت جنسیتی و آزادی فردی مورد توجه گسترده قرار گرفت، در شصت‌وچهارمین دوره اسکار نامزد دریافت ۶ جایزه شد و جایزه بهترین فیلم‌نامه غیراقتباسی را کسب کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 8810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز باید منتظر توئیت ترامپ در مورد جواب ایران به طرح پیشنهادی آمریکا باشیم
+</div>
+
+## mwarmonitor — post 8809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴(عاموس هارل Amos Harel. او یکی از شناخته‌شده‌ترین تحلیل‌گران نظامی و امنیتی اسرائیل است و سال‌هاست در روزنامه Haaretz می‌نویسد. هارل معمولاً به‌خاطر نگاه انتقادی، حرفه‌ای و غیرجناحی‌اش به ارتش اسرائیل، جنگ‌ها، سیاست‌های امنیتی و عملکرد دولت‌ها—از جمله نتانیاهو—شناخته می‌شود. تحلیل‌های او اغلب در رسانه‌های بین‌المللی هم بازتاب پیدا می‌کند و منبع مهمی برای فهم فضای امنیتی و نظامی اسرائیل محسوب می‌شود.)
+
+📝عاموس هارل می‌نویسد
+
+«نتانیاهو هرچه بیشتر در ترمیم تناقض‌های مواضع خود ناتوان می‌شود. پیروزی مطلقی که وعده داده بود مدت‌هاست رنگ باخته است. به نظر می‌رسد تنها حامیان دوآتشه‌اش با طفره رفتن او از انجام یک تحقیق مستقل درباره بدترین شکست تاریخ کشور کنار آمده‌اند. در حالی که کمتر از شش ماه تا انتخابات باقی مانده، وضعیت نخست‌وزیر آن‌گونه که در نظرسنجی‌ها بازتاب یافته، به‌هیچ‌وجه امیدوارکننده نیست. دقیقاً به همین دلایل است که هرچه به موعد انتخابات نزدیک می‌شویم، باید تصمیمات او در حوزه‌های امنیتی و سیاسی را با نگاهی شکاکانه‌تر از همیشه بررسی کرد.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرنا:پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، امروز به میانجی پاکستانی ارسال شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4544
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4544_1778416631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ خبرگزاری جمهوری اسلامی، ایرنا، مدعی شد پاسخ تهران به آخرین متن پیشنهادی آمریکا برای پایان جنگ، از طریق میانجی پاکستانی ارسال شده است. بنا بر این گزارش، پاسخ جمهوری اسلامی روز یکشنبه به طرف آمریکایی منتقل شده است.
+
+#مذاکرات #پاکستان #جنگ
+@DEJradio
+</div>
+
+## kianmeli1 — post 87324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴ایرنا، خبرگزاری رسمی جمهوری اسلامی: پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، امروز به میانجی پاکستانی ارسال شد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336457
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336457_1778416631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی ایرنا گزارش داد که پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، روز یکشنبه به میانجی پاکستانی ارسال شده است.
+
+روز شنبه دونالد ترامپ گفته بود که انتظار دارد هر چه سریع‌تر پاسخ جمهوری اسلامی را دریافت کند.
+
+پیش‌تر سخنگوی وزارت خارجه جمهوری اسلامی اعلام کرده بود دیدگاه‌ها و ملاحظات مقام‌های ایرانی راجع به پیشنهادهای آمریکا، بعد از تکمیل بررسی‌ها و جمع‌بندی نهایی، ارسال خواهد شد.
+https://iranintl.com/202605100427
+</div>
+
+## DW_Farsi — post 124521
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124521_1778416632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶۷۲ روز قطعی اینترنت و سکوت دیجیتال در ایران
+
+قطعی و محدودیت گسترده اینترنت در ایران وارد هفتادودومین روز خود شد؛ وضعیتی که بنا بر داده‌های نت بلاکس، نهاد ناظر بر وضعیت دسترسی به اینترنت در جهان، همچنان بدون نشانه‌ای از بازگشت پایدار ارتباطات ادامه دارد.
+
+بر اساس این داده‌ها، اتصال اینترنت در ایران پس از ۱۷۰۴ ساعت همچنان قطع است. این اختلال گسترده اکنون وارد سومین ماه پیاپی شده و از آن به‌عنوان یکی از طولانی‌ترین دوره‌های محدودیت اینترنت نه تنها در ایران بلکه در جهان یاد می‌شود.
+
+این در حالی است که اینترنت در ایران پیش از شروع جنگ نیز در زمان اعتراضات دی‌ماه ۱۴۰۴ با یک قطعی گسترده روبرو بود و به فاصله کوتاهی پس از آغاز حملات آمریکا و اسرائیل، جمهوری اسلامی مجددا ایران را در یک خاموشی دیجیتال فرو برد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124520
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶آلمان از سقف سهم مصرف از منابع طبیعی در سال ۲۰۲۶ عبور کرد
+
+از منظر آمار، آلمان منابع طبیعی مورد نیاز برای کل سال ۲۰۲۶ را از روز یکشنبه ۱۰ مه (۲۰ اردیبهشت) به پایان رسانده است.
+
+سازمان محیط زیستی "شبکه ردپای جهانی" (Global Footprint Network)، اصطلاحا " روز اضافه‌برداشت زمین " را سالانه برای کشورهای مختلف و همچنین برای کل سیاره محاسبه می‌کند.
+
+اگر همه مردم جهان به اندازه ساکنان آلمان منابع طبیعی مصرف و دی‌اکسید کربن تولید می‌کردند، ظرفیت زیستی سالانه زمین همین حالا، در یک‌سوم نخست سال ۲۰۲۶، به پایان می‌رسید.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 13824
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13824_1778416633.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ایرنا؛
+🔸پاسخ ایران به متن پیشنهادی آمریکا ارسال شد
+
+🔹پاسخ جمهوری اسلامی ایران به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، امروز به میانجی پاکستانی ارسال شد.
+
+🔹سخنگوی وزارت خارجه قبلا چند بار اعلام کرده بود دیدگاه‌ها و ملاحظات ایران راجع به پیشنهادهای آمریکا، بعد از تکمیل بررسی‌ها و جمع‌بندی نهایی، ارسال خواهد شد.
+
+🔹بر اساس طرح پیشنهادی، در این مرحله مذاکرات متمرکز بر موضوع خاتمه جنگ در منطقه خواهد بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۱۰ می روز جهانی مادر است، اما در سرزمین ما، بعضی مادرها فقط مادر نماندند، به درد یک ملت تبدیل شدند.
+مادرانی که فرزندانشان را در راه آزادی از دست دادند و مادرانی که خود، جاویدنام راه ایران شدند.
+نامتان در حافظهٔ این خاک خواهد ماند، مثل نوری خاموش‌نشدنی.
+روز مادر بر تمام مادران غیور و سربلند ایران‌زمین خجسته باد.
+بر آنان که ایستادند، سوختند ، اما نشکستند.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 280657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سخنگوی کمیسیون امنیت ملی مجلس: از امروز خویشتنداری ما تمام شد
+
+سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس ایران گفت که از امروز «خویشتنداری» به پایان می‌رسد.
+
+ابراهیم رضایی در شبکه اجتماعی ایکس نوشت: «هر تعرضی به شناورهای ما، با پاسخ سنگین و قاطع ایران به شناورها و پایگاه‌های آمریکایی مواجه خواهد شد.»
+
+آقای رضایی در پایان نوشت: «باید به نظم منطقه‌ای جدید عادت کنید.»
+
+https://bbc.in/4u0LNEF
+@BBCPersian
+</div>
+
+## alonews — post 119061
+
+<div align="center">
+  <a href="telegram/content/alonews_119061_1778416634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈همتی: افزایش نرخ دلار با توجه به جنگ منطقی بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119060
+
+<div align="center">
+  <a href="telegram/content/alonews_119060_1778416634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امارات بازگشت آموزش حضوری از فردا دوشنبه را با اجرای پروتکل‌ها و تدابیر مصوب ایمنی و سلامت اعلام کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119059
+
+<div align="center">
+  <a href="telegram/content/alonews_119059_1778416635.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️کره شمالی دکترین هسته‌ای خود را اصلاح کرده به طوری که در صورت کشته شدن رهبرش، شلیک خودکار سلاح‌های هسته‌ای مجاز خواهد بود.!
+
+
+✅@AloNews
+</div>
+
+## alonews — post 119058
+
+<div align="center">
+  <a href="telegram/content/alonews_119058_1778416636.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری دولت: بر اساس طرح پیشنهادی، در این مرحله مذاکرات متمرکز بر موضوع خاتمه جنگ در منطقه خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119057
+
+<div align="center">
+  <a href="telegram/content/alonews_119057_1778416636.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ خبرگزاری دولت: پاسخ ایران به متن پیشنهادی آمریکا ارسال شد
+
+
+✅ @AloNews خبر جنگ
+</div>
 
 ---
 📅 بروزرسانی: 1405/02/20 15:53
@@ -1434,5 +1680,5 @@ https://bbc.in/48RTMeY
 <!-- MSG END -->
 
 <!-- NAV START -->
-<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/ProAlit/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
+<div dir="rtl" style="text-align:left; margin-top:10px;"><a href="https://github.com/benyamin-najmi/aio-downloader/blob/main/telegram/content/archive_1.md" style="display:inline-block; padding:6px 12px; margin:0 4px; background-color:#2ea44f; color:white; text-decoration:none; border-radius:4px; font-weight:bold;">صفحه بعد</a></div>
 <!-- NAV END -->
