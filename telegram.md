@@ -7,6 +7,614 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 02:41
+---
+
+## VahidOOnLine — post 239409
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239409_1778454708.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️درحالی که دونالد ترامپ، پاسخ تهران به پیشنهاد آمریکا را که پس از ۱۰ روز ارسال شده، «کاملا غیرقابل قبول» توصیف کرده است، وال استریت ژورنال جزئیاتی از این پاسخ را به نقل از منابع آگاه، روایت کرده است. این روزنامه آمریکایی می نویسد، تهران به‌طور رسمی پاسخی چندصفحه‌ای به آخرین پیشنهاد آمریکا برای پایان دادن به جنگ ارسال کرده و در آن خواسته‌های خود را با جزئیات مطرح کرده است؛ پاسخی که به گفته افراد مطلع، همچنان شکاف‌هایی میان دو طرف باقی می‌گذارد.
+به گفته این منابع، پاسخ جدید مسئله اصلی مورد مطالبه آمریکا یعنی دریافت تعهدات قبلی درباره سرنوشت برنامه هسته‌ای ایران و ذخایر اورانیوم با غنای بالای آن را حل نمی‌کند. در عوض، تهران پیشنهاد داده است که همزمان با لغو محاصره کشتی‌ها و بنادر ایران از سوی آمریکا، جنگ متوقف شود و تنگه هرمز به‌تدریج به روی رفت‌وآمد تجاری باز شود.
+این منابع گفتند مسائل هسته‌ای طی ۳۰ روز آینده مذاکره خواهد شد. به گفته آن‌ها، ایران پیشنهاد داده بخشی از اورانیوم با غنای بالای خود را رقیق کند و بقیه به کشور ثالث منتقل شود.
+به گفته این افراد، پاسخ تهران که به میانجی‌‌های پاکستان تحویل داده و سپس به واشینگتن منتقل شده، شامل درخواست تضمین‌هایی است که در صورت شکست مذاکرات یا خروج بعدی آمریکا از توافق، اورانیوم منتقل‌شده دوباره به ایران بازگردانده شود.
+آن‌ها افزودند ایران همچنین اعلام کرده حاضر است غنی‌سازی اورانیوم را تعلیق کند، اما برای دوره‌ای کوتاه‌تر از توقف ۲۰ ساله‌ای که آمریکا پیشنهاد داده است. به گفته این منابع، رژیم ایران با برچیدن تاسیسات هسته‌ای خود مخالفت کرده است.
+تسنیم، وابسته به سپاه پاسداران، به نقل از یک «منبع آگاه» گزارش داد که روایت روزنامه وال‌استریت ژورنال درباره پیشنهادهای ایران در زمینه مواد هسته‌ای «صحت ندارد.»
+گزارش تسنیم می‌گوید رژیم ایران خواستار لغو تحریم‌های دفتر کنترل دارایی‌های خارجی آمریکا علیه فروش نفت ایران در دوره پیشنهادی ۳۰ روزه شده است. جمهوری اسلامی همچنین خواهان آزادسازی دارایی‌های مسدودشده خود در خارج از کشور است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239408
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239408_1778454709.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گردهمایی ایرانیان سانفرانسیسکو
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239407
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239407_1778454710.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گردهمایی ایرانیان هامبورگ
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239406
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239406_1778454712.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیکوزیا|قبرس؛ راهپیمایی و گردهمایی ایرانیان
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239405
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239405_1778454713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیسون برادسکی، مدیر سیاست‌گذاری اتحاد علیه ایران هسته‌ای، در مورد تماس تلفنی دونالد ترامپ و بنیامین نتانیاهو در مورد پاسخ جمهوری اسلامی نوشت: «تغییر وضع موجود ضروری است. محاصره لازم است، اما کافی نیست.»
+
+او در شبکه اجتماعی ایکس تاکید کرد ترکیب محاصره با اقدام نظامی مهم خواهد بود.
+
+برادسکی همچنین اشاره کرد: «برخلاف تصوری که رسانه‌ها و برخی مفسران ایجاد کرده‌اند، رییس‌جمهور همچنان نشان می‌دهد که به هیچ توافقی با رژیم ایران، صرف نظر از شرایط، مشتاق نیست. اگر او واقعا برای هر توافقی مشتاق بود، مدت‌ها پیش توافقی حاصل شده بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239404
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239404_1778454714.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندزی گراهام در واکنش به گمانه‌زنی‌ها درباره توافق احتمالی با ایران، در حساب کاربری خود در شبکه ایکس نوشت
+
+او تأکید کرد تعلیق موقت غنی‌سازی بدون نابودی کامل زیرساخت‌ها و توانمندی‌ها، عملاً بازگشت به توافق برجام خواهد بود.
+
+گراهام افزود هرگونه مخالفت تهران با برچیدن کامل ظرفیت غنی‌سازی از سوی آمریکا «قاطعانه رد خواهد شد». او در بخش دیگری از پیام خود از حمایت دونالد ترامپ قدردانی کرد و آن را برای خود «بسیار ارزشمند» خواند.
+
+گراهام گفت به اعتماد ترامپ، چه به‌عنوان سناتور و چه به‌عنوان دوست، افتخار می‌کند و از همراهی با او در آنچه «بزرگ‌ترین بازگشت سیاسی در تاریخ آمریکا» توصیف کرد، ابراز خرسندی کرد.
+
+وی همچنین تأکید کرد در سنای آمریکا برای پیشبرد دستورکار ترامپ جهت «امن‌تر و ثروتمندتر کردن آمریکا» تلاش خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239403
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239403_1778454714.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل در مصاحبه با برنامه ۶۰‌ دقیقه سی‌بی‌اس در پاسخ به مجری که از او پرسید چه طرحی را برای خارج کردن ذخایر اورانیوم غنی‌شده از ایران متصور است گفت: باید نیروها وارد شوند و ذخایر را بردارند و از ایران بیرون ببرند. او گفت که در دیدار اخیر با دونالد ترامپ، رئیس‌جمهوری آمریکا به او گفته است که می‌خواهد نیروها را وارد کند و این کار را به طور فیزیکی انجام دهد. نتانیاهو گفت اگر توافقی باشد و نیروها بتوانند براساس آن وارد شوند و ذخایر را خارج کنند، مشکلی نیست. نخست‌وزیر اسرائیل در پاسخ به مجری که از او پرسید اگر توافقی در کار نباشد، آیا از نیروی زمینی استفاده می‌شود؟ گفت: در مورد برنامه‌ها و طرح‌های نظامی صحبت نمی‌کند. او همچنین گفت که بازه زمانی را نیز در این مورد ارایه نمی‌دهد. نتانیاهو این ماموریت را «به‌شدت مهم» توصیف کرد. او در همین بخش مصاحبه تاکید کرد که برنامه هسته‌ای ایران به دلیل حمله‌ها آسیب دیده اما هنوز همه ظرفیت غنی‌سازی از بین نرفته و تاسیسات غنی‌سازی باید برچیده شوند. او همچنین به نیروهای نیابتی جمهوری اسلامی اشاره کرد و آن را یکی دیگر از مشکلات باقی‌مانده درباره رژیم ایران توصیف کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرداخت کارتیم از فردا اکی میکنم همکاریم بالا 100 گیگ موجوده
+</div>
+
+## pm_afshaa — post 90516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امستردام هلند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90515
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدون قطعی خودمم پشتیبانی میکنم سرورارو فقطم پرداختش با ارز دیجیتاله
+</div>
+
+## pm_afshaa — post 90514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفینگ با سرعت موشک گیر اوردم فقط 10 گیگ و 5 گیگ موجوده هر کی خواست بیاد دایرکت چنل
+</div>
+
+## pm_afshaa — post 90513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفینگ با سرعت موشک گیر اوردم
+فقط 10 گیگ و 5 گیگ موجوده هر کی خواست بیاد دایرکت چنل
+</div>
+
+## pm_afshaa — post 90511
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پست جدیدی در تروث خود از صحبت های مارک لوین با محتوای ضرورت آموزش نظامی مردم ایران ( گارد جاویدان ) را منتشر کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارک فاکس، معاون سابق فرماندهی مرکزی آمریکا : آتش‌بس با ایران به اسرائیل اجازه داد تا ذخایر مهمات خودشو دوباره پر کنه و اطلاعات بیشتری جمع‌آوری کنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## kianmeli1 — post 87339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴العربیه: قیمت جهانی نفت با سه درصد افزایش، جهش کرد و نفت برنت پس از اظهارات دونالد ترامپ درباره «غیرقابل قبول بودن پاسخ ایران» بالای ۱۰۴ دلار در هر بشکه معامله شد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدا و سیما
+
+ایران آخرین پیشنهاد آمریکا را رد کرد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336548
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336548_1778454715.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع «یک ملت گروگان» در واشینگتن به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «افتخار می‌کنیم که در حمایت از مردم ایران و به نمایندگی از آن‌ها در این مراسم شرکت کنیم.»
+
+او افزود: «امروز همچنین روز مادر در آمریکاست و می‌خواهیم به مادران ایران، به‌ویژه مادرانی که فرزندانشان را از دست داده‌اند، ادای احترام کنیم. حداقل کاری که می‌توانستیم انجام دهیم، حضور در این مراسم بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336547
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336547_1778454716.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیسون برادسکی، مدیر سیاست‌گذاری اتحاد علیه ایران هسته‌ای، در مورد تماس تلفنی دونالد ترامپ و بنیامین نتانیاهو در مورد پاسخ جمهوری اسلامی نوشت: «تغییر وضع موجود ضروری است. محاصره لازم است، اما کافی نیست.»
+
+او در شبکه اجتماعی ایکس تاکید کرد ترکیب محاصره با اقدام نظامی مهم خواهد بود.
+
+برادسکی همچنین اشاره کرد: «برخلاف تصوری که رسانه‌ها و برخی مفسران ایجاد کرده‌اند، رییس‌جمهور همچنان نشان می‌دهد که به هیچ توافقی با رژیم ایران، صرف نظر از شرایط، مشتاق نیست. اگر او واقعا برای هر توافقی مشتاق بود، مدت‌ها پیش توافقی حاصل شده بود.»
+https://iranintl.com/202605105974
+</div>
+
+## IranIntlTV — post 336546
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336546_1778454717.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «سفر ترامپ به پکن می‌تواند پیام هشدار جدی‌تری برای تهران داشته باشد. به‌ویژه با توجه به تهدید دوباره ترامپ به بمباران شدیدتر در صورت عدم توافق. اعلام مذاکره ترامپ و شی جین‌ پینگ درباره جمهوری اسلامی، احتمال شکل‌گیری معامله و بده‌بستان میان واشینگتن و پکن بر سر پرونده ایران را پررنگ‌تر کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336545
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336545_1778454718.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پاسخ جمهوری اسلامی به پیشنهاد آمریکا را غیرقابل قبول دانست.
+
+او پیش‌تر گفته بود جمهوری اسلامی ۴۷ سال با آمریکا و جهان بازی کرده و با تاخیر، زمان خریده است، اما این اتفاق دیگر نخواهد افتاد.
+
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336544
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336544" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: دست رد ترامپ بر پیشنهاد جمهوری‌اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336543
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336543_1778454720.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ از دریافت پاسخ تهران به طرح پیشنهادی ایالات متحده خبر داد و آن را غیرقابل قبول خواند.
+
+این اظهارات ترامپ با واکنش‌های گسترده‌ای در شبکه‌های اجتماعی و رسانه‌ها همراه شده است.
+
+جزییات بیشتر در گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336542
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336542_1778454721.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندزی گراهام در واکنش به گمانه‌زنی‌ها درباره توافق احتمالی با ایران، در حساب کاربری خود در شبکه ایکس نوشت این ایده که جمهوری اسلامی در چارچوب یک توافق مذاکره‌شده، تأسیسات غنی‌سازی خود را به‌طور کامل برچیند، منطقی نیست.
+
+او تأکید کرد تعلیق موقت غنی‌سازی بدون نابودی کامل زیرساخت‌ها و توانمندی‌ها، عملاً بازگشت به توافق برجام خواهد بود.
+
+گراهام افزود هرگونه مخالفت تهران با برچیدن کامل ظرفیت غنی‌سازی از سوی آمریکا «قاطعانه رد خواهد شد». او در بخش دیگری از پیام خود از حمایت دونالد ترامپ قدردانی کرد و آن را برای خود «بسیار ارزشمند» خواند.
+
+گراهام گفت به اعتماد ترامپ، چه به‌عنوان سناتور و چه به‌عنوان دوست، افتخار می‌کند و از همراهی با او در آنچه «بزرگ‌ترین بازگشت سیاسی در تاریخ آمریکا» توصیف کرد، ابراز خرسندی کرد.
+
+وی همچنین تأکید کرد در سنای آمریکا برای پیشبرد دستورکار ترامپ جهت «امن‌تر و ثروتمندتر کردن آمریکا» تلاش خواهد کرد.
+https://iranintl.com/202605106523
+</div>
+
+## Shin_Persian — post 5950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 22:45:03 UTC
+
+NOW @ 2244Z -
+AA activity over northwestern Tehran, Tehran Province, #Iran
+
+فارسی
+
+هم‌اکنون در ۲۲۴۴ زولو (۰۲:۱۴ به وقت تهران) -
+فعالیت پدافند هوایی در شمال غرب تهران، استان تهران، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5949
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_5949_1778454722.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 22:36:12 UTC
+
+Earlier @ 1800Z -
+AA activity,
+ring road near Ziba Shahr in Dezful.
+Khuzestan Province, #Iran
+(Via @mamlekate)
+
+فارسی
+
+پیش‌تر در ساعت ۱۸۰۰ زولو (۲۱:۳۰ به وقت تهران) -
+فعالیت پدافند هوایی،
+کمربندی نزدیک زیباشهر در دزفول.
+استان خوزستان، #Iran
+(از طریق @mamlekate)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.20 released
+
+• Fix Full mode regression since v1.9.15 (#924, PR #1029)
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.20 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1920
+</div>
+
+## ManotoTV — post 105286
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105286_1778454723.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گردهمایی ایرانیان سانفرانسیسکو
+</div>
+
+## ManotoTV — post 105285
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105285_1778454724.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گردهمایی ایرانیان هامبورگ
+</div>
+
+## ManotoTV — post 105284
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105284_1778454726.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیکوزیا|قبرس؛ راهپیمایی و گردهمایی ایرانیان
+</div>
+
+## FarsiVOA — post 217385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در جلسه مجلس شورای اسلامی برای گرانی چه گذشت؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217384
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217384_1778454727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رسانه‌های جمهوری اسلامی می‌گویند یک فروند «پهپادشناسایی دشمن» در منطقه جنوب غرب منهدم شد. پیشتر، کانال تلگرامی وحیدآنلاین به نقل از کاربران از شنیده شدن صدای چندین انفجار در دزفول و اندیمشک خبر داده بود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217383
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217383_1778454727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سناتور جمهوری‌خواه لیندزی گراهام، یکشنبه عصر در شبکه اجتماعی ایکس نوشت «هیچ معنایی ندارد» که جمهوری اسلامی «در چارچوب یک توافق مذاکره‌شده» تأسیسات غنی‌سازی خود را به‌طور کامل نابود نکند. او افزود «یک تعلیق موقت، بدون برچیدن کامل تأسیسات و قابلیت‌های غنی‌سازی، در واقع همان برجام است.» آقای گراهام گفت: «من مطمئن هستم که مخالفت [جمهوری اسلامی] ایران با نابود کردن توان غنی‌سازی‌اش، به‌طور قاطع رد خواهد شد.»
+@FarsiVOA
+</div>
+
+## IranianMinds — post 19923
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19923_1778454727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به آکسیوس گفت که پاسخ ایران به آخرین پیش‌نویس توافق برای پایان دادن به جنگ را رد خواهد کرد؛ پاسخی که پس از ۱۰ روز انتظار آمریکا برای دریافت جواب تهران ارسال شده بود.
+
+او گفت: «نامه‌شان را دوست ندارم. نامناسب است. از پاسخشان خوشم نیامد.»
+ترامپ همچنین افزود که ایران «۴۷ سال است بسیاری از کشورها را بازی داده است.»
+
+او تایید کرد که روز یکشنبه با نتانیاهو گفت‌وگو کرده؛ تماسی که آن را «بسیار خوب» توصیف کرد، اما تأکید داشت که مذاکرات با ایران «مسئله من است، نه مسئله دیگران.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی
+💵👌
+</div>
+
+## IranianMinds — post 19921
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19921_1778454728.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae20
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## BBCPersian — post 280699
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_280699_1778454730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال بارسلونا با شکست دو بر صفر رئال مادرید، با وجود سه مسابقه باقی‌مانده، قهرمان شد و برای ۲۹مین بار جام قهرمانی باشگاه‌های اسپانیا - لالیگا - را تصاحب کرد.
+
+دو تیم عصر یکشنبه در مهمترین الکلاسیکو سال و در قالب هفته سی و پنجم لالیگا روبروی هم قرار گرفتند که شاگردان فلیک در همان دقایق ابتدایی - دقیقه ۹ - با کاشته زیبا رشفورد جلو افتادند.
+
+تورس تنها ۹ دقیقه بعد - در دقیقه ۱۸ - گل دوم بارسلونا را زد تا هانسی فلیک در همان نیمه اول برق قهرمانی در چشمانش ثبت شود.
+
+این قهرمانی برای بارسلونا ارزش مضاعفی داشت چرا که آنها با شکست مستقیم رقیب سنتی خود جام را کسب کردند.
+
+📸 Getty
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389251
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389251" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389250
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389250_1778454731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389249
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389249_1778454732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389248
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389248_1778454732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محصول مشترک الجزایر، فرانسه، ادیداس کرج و کردستان: @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389247
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389247_1778454732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلایی که یه پریود ساده ممکنه سرت بیاره.
+
+این خانوم لارن وسر مدل آمریکاییه که بخاطر استفاده از تامپون تو سن ۲۴ سالگی دچار TSS یا سندروم شوک مسمومیت میشه و هر دو پاش رو از دست میده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389246
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389246_1778454732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه داداش تو نمیدونی جمهوری اسلامی خیلی خوب داره دووم میاره جلو آمریکا و اسرائیل :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389245
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389245_1778454732.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه نمیشه یبار مصرف کرد
+باید بعد استفاده بشوریمش رو بند آویزون کنیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105286
+
+<div align="center">
+  <a href="telegram/content/manototv_105286_1778454733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گردهمایی ایرانیان سانفرانسیسکو
+</div>
+
+## manototv — post 105285
+
+<div align="center">
+  <a href="telegram/content/manototv_105285_1778454734.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گردهمایی ایرانیان هامبورگ
+</div>
+
+## manototv — post 105284
+
+<div align="center">
+  <a href="telegram/content/manototv_105284_1778454735.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیکوزیا|قبرس؛ راهپیمایی و گردهمایی ایرانیان
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 01:43
 ---
 
