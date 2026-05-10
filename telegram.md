@@ -7,6 +7,1685 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 18:46
+---
+
+## VahidOOnLine — post 239308
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239308_1778426219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان مقیم سوئیس یکشنبه ۲۰ اردیبهشت در پی فراخوان شاهزاده رضا پهلوی، علیه اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران، در شهر ژنو تجمع کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239307
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239307_1778426221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هلسینکی | فنلاند؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239306
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239306_1778426223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر منوتو با ارسال ویدیویی از گرانی اقلام خوراکی در فروشگاه می‌گوید:
+«سپاه ما رو به خواری و ذلت انداخته»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239305
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239305_1778426224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم ایتالیا، یکشنبه ۲۰ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهر بولونیا تجمع کردند و شعار «تا آخوند کفن نشود، این وطن وطن نشود» سردادند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239304
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239304_1778426226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند در پاسخ جمهوری اسلامی درباره توافق خاتمه جنگ به میانجی پاکستانی، بر پایان جنگ در همه جبهه‌ها، به‌ویژه لبنان، و تامین امنیت کشتیرانی تاکید شده است.
+
+پیش‌تر دونالد ترامپ گفته بود انتظار دارد هر چه سریع‌تر پاسخ جمهوری اسلامی را دریافت کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239303
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239303_1778426227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد ایرانیان مقیم هامبورگ در آلمان روز یکشنبه ۲۰ اردیبهشت‌ماه در پی فراخوان شاهزاده رضا پهلوی، در اعتراض به اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران راهپیمایی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239302
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239302_1778426229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم بریتانیا، یکشنبه ۲۰ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهرهای نیوکسل و بیرمنگام تجمع کردند و شعار دادند: «ایران آری، آخوند نه»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239301
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239301_1778426231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز یکشنبه در گفتگو با برنامه آمریکایی «فول مژر» با اشاره به مذاکرات اخیر با جمهوری اسلامی گفت: «با گروه سرسختی طرف هستیم»، اما در عین حال تاکید کرد ایران از نظر نظامی شکست خورده است.
+
+ترامپ همچنین گفت آمریکا «سه رده رهبری» در ایران را از میان برده و جمهوری اسلامی اکنون «رهبرانی ندارد، چون آن‌ها را نابود کردیم.»
+
+او در ادامه گفت ایران دیگر سامانه پدافند هوایی و رادار ندارد و مدعی شد جمهوری اسلامی «نه نیروی دریایی دارد و نه نیروی هوایی.»
+
+ترامپ افزود جمهوری اسلامی موشک‌هایی در اختیار داشت که توان رسیدن به اروپا را داشتند و اگر توافق هسته‌ای موسوم به برجام لغو نمی‌شد، ایران اکنون به سلاح هسته‌ای دست یافته بود.
+
+او همچنین یادآور شد در صورتی که آمریکا از برجام خارج نمی‌شد، بازسازی توانمندی‌های ایران «۲۰ سال» زمان می‌برد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239300
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239300_1778426231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، نماینده آمریکا در سازمان ملل متحد، به فاکس نیوز گفت: عملیات خشم اقتصادی در حال حاضر اقتصاد ایران را ویران می‌کند. پول آنها در حال سقوط آزاد است، ذخایر ارزی آنها نزدیک به صفر است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239299
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239299_1778426232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینسبروک | اتریش؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239298
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239298_1778426233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژنو | سوئیس؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239297
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239297_1778426235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با «فول مژر» درباره اورانیوم غنی‌شده در ایران گفت: ما بالاخره به آن دست پیدا می‌کنیم، ما آنجا را تحت نظارت داریم. همه‌چیز تحت نظر است. اگر کسی به آن محل نزدیک شود، خبردار می‌شویم و نابودش می‌کنیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239296
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239296_1778426235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با «فول مژر» درباره اورانیوم غنی‌شده در ایران گفت: ما بالاخره به آن دست پیدا می‌کنیم، ما آنجا را تحت نظارت داریم. همه‌چیز تحت نظر است. اگر کسی به آن محل نزدیک شود، خبردار می‌شویم و نابودش می‌کنیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239295
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239295_1778426236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با «فول مژر» درباره اورانیوم غنی‌شده در ایران گفت: ما بالاخره به آن دست پیدا می‌کنیم، ما آنجا را تحت نظارت داریم. همه‌چیز تحت نظر است. اگر کسی به آن محل نزدیک شود، خبردار می‌شویم و نابودش می‌کنیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239294
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239294_1778426236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان ساکن استکهلم سوئد، یکشنبه ۲۰ اردیبهشت ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239293
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239293_1778426238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس اسدروز، مدیرعامل شرکت پایانه‌های نفتی ایران، گزارش‌ها درباره وجود لکه نفتی در جزیره خارک را رد کرد و گفت پس از انتشار این اخبار، گروه‌های تخصصی کل منطقه را پایش کردند اما هیچ نشتی شناسایی نشد.
+
+او افزود: هیچ‌گونه نشتی در زیرساخت‌ها، مخازن ذخیره‌سازی، سیستم‌های اندازه‌گیری، اسکله‌ها، خطوط لوله این منطقه و کشتی‌های در حال بارگیری وجود ندارد.
+
+آسوشیتدپرس جمعه ۱۸ اردیبهشت گزارش داد لکه‌ای نفتی از بخش غربی جزیره خارک، در حال نشت است.
+آمی دنیل، مدیرعامل شرکت اطلاعات دریایی «ویندوارد ای‌آی»، به ای‌پی گفت از روز سه‌شنبه، معادل حدود ۸۰ هزار بشکه نفت از جزیره خارک نشت کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 8830
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_8830_1778426239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اUSS John Finn (DDG-113) در پشت سرِ USS Milius (DDG-69)، USNS Carl Brashear (T-AKE-7) و USS George H.W. Bush (CVN-77) در دریای عرب در حال حرکت است.
+
+📌بیش از ۲۰ ناو جنگی آمریکا در حال اجرای محاصره علیه ایران هستند. نیروهای سنتکام تاکنون ۶۱ کشتی تجاری را منحرف کرده و ۴ فروند را از کار انداخته‌اند تا از اجرای این روند اطمینان حاصل شود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 8829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝این آخرین تلاش‌هایِ دولتِ اِستامر قبل از کله‌پا شدنِ
+</div>
+
+## mwarmonitor — post 8828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: «برای من لازم بود که مداخله نظامی انجام دهم، زیرا با اطمینان می‌دانستم که ایران در مسیر دستیابی به سلاح هسته‌ای قرار دارد.» @mwarmonitor
+</div>
+
+## mwarmonitor — post 8827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«مصاحبه ترامپ درباره موضوعات مختلف داخلی و خارجی انجام شد که بخش‌های مهم مربوط به ایران را در ادامه برای شما ارائه خواهم کرد.»
+</div>
+
+## mwarmonitor — post 8826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در مصاحبه‌ای با The National Desk اعلام کرد: «می‌توانیم دو هفته دیگر ادامه دهیم و همه اهداف را بزنیم؛ ما اهداف مشخصی داشتیم که ۷۰ درصد آن‌ها را انجام داده‌ایم. اهداف بیشتری هم وجود دارد که می‌توانیم به‌طور احتمالی آن‌ها را هدف قرار دهیم.» او همچنین…
+</div>
+
+## mwarmonitor — post 8825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شریل اتکیسون: در کجای جنگ هستیم، اگر هنوز مواد هسته‌ای، یعنی اورانیوم غنی‌شده را از آن‌ها نگرفته‌ایم؟ 🔵دونالد ترامپ: خب، ما در مقطعی آن را به دست خواهیم آورد، هر زمان که بخواهیم. ما آنجا را تحت نظر داریم. می‌دانی، من چیزی به نام «نیروی فضایی» ایجاد کردم و…
+</div>
+
+## mwarmonitor — post 8824
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_8824_1778426239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در سوشال تروث
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 90490
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90490_1778426240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نخست وزیر پاکستان: فرمانده ارتش پاکستان بهم گفت که ایران پاسخ خودش به پیشنهاد آمریکا رو ارسال کرده و دریافت شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90489
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90489_1778426240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: نگفتم عملیات نظامی علیه ایران پایان یافته، بلکه گفتم آنها شکست خوردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90488
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90488_1778426241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ: 3 سطح از رهبری ایران نابود شده اما من فکر میکنم ما با افرادی روبرو هستیم که قدرت خاصی دارن؛ خیلی جالبه که آنها معامله می‌کنند و سپس آن را می‌شکنند. آنها گروه سر سختی هستند.
+
+اگر امروز انجا رو ترک کنیم، ایران برای بازسازی توانمندی‌هایش به 20 سال زمان نیاز خواهد داشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90487
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90487_1778426241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو در مصاحبه با CBS News: جنگ با ایران هنوز تموم نشده، چون هنوز یه مقدار اورانیوم غنی‌شده تو ایران مونده که باید از ایران خارجش بشه؛ هنوزم سایت‌های غنی‌سازی هست که باید جمع بشه، هنوز گروه‌های نیابتی‌ای که ایران حمایتشون میکنه وجود دارن و ایران هنوز…
+</div>
+
+## pm_afshaa — post 90486
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90486_1778426242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو در مصاحبه با CBS News:
+جنگ با ایران هنوز تموم نشده، چون هنوز یه مقدار اورانیوم غنی‌شده تو ایران مونده که باید از ایران خارجش بشه؛
+
+هنوزم سایت‌های غنی‌سازی هست که باید جمع بشه، هنوز گروه‌های نیابتی‌ای که ایران حمایتشون میکنه وجود دارن و ایران هنوز میخواد موشک بالستیک تولید کنه؛ ما خیلی از توانشونو نابود یا ضعیف کردیم، ولی هنوز کار مونده که باید انجام بدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90485
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90485_1778426243.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع دیپلماتیک پاکستانی به الجزیره:
+پاسخ ایران به پیشنهاد آمریکا پس از دریافت به طرف آمریکایی منتقل شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90484
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90484_1778426244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ ویدیویی رو بازنشر کرده که مربوط به برنامه مارک لوینه؛ جایی که مهمان برنامه میگه «ازسرگیری اقدام نظامی، بهترین گزینه برای مقابله با ایرانه.»
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ:ما نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد چون آن‌ها دیوانه هستند.
+
+اگر من توافق هسته‌ای اوباما با ایران را لغو نکرده بودم، آن‌ها اکنون آن را داشتند و ممکن بود از آن علیه اسرائیل و خاورمیانه و شاید فراتر استفاده کنن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: هنوز اهداف دیگری در ایران داریم که همچنان احتمال هدف قرار دادنشان بسیار بالاست
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: می‌توانیم تا دو هفته دیگر علیه ایران حرکت کنیم و به هر یک از اهداف مشخص‌شده ضربه بزنیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ درباره ایران:ما در نهایت اورانیوم غنی‌شده ایران را به دست خواهیم آورد. هر چه بخواهیم ما آن را تحت نظر داریم. من چیزی به نام نیروی فضایی ایجاد کردم و آن‌ها در حال نظارت بر آن هستند. اگر کسی وارد شود، می‌توانند نام، آدرس و شماره نشان او را به شما بگویند اگر کسی به آن مکان نزدیک شود، ما از آن مطلع خواهیم شد و او را منفجر خواهیم کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ادعای عجیب نماینده مجلس: با ۴ هزار میلیارد تومان ایتا را به سطح واتس‌اپ می‌رسانیم!
+
+رئیس کمیته ICT مجلس در اظهارنظری جنجالی مدعی شده است که فاصله میان پیام‌رسان‌های داخلی مثل ایتا با نمونه‌های جهانی مانند واتس‌اپ، تنها در کمبود بودجه برای خرید سرور خلاصه می‌شود. به گفته او، ارتقای این پلتفرم‌ها هزینه چندانی برای کشور ندارد.
+
+این نماینده مجلس معتقد است که پلتفرم‌های داخلی از نظر فنی کمبودی ندارند و تنها زیرساخت‌های سخت‌افزاری آن‌ها باید تقویت شود:
+
+🔹 بودجه برای رقابت: مصطفی طاهری مدعی است با صرف ۳ تا ۴ هزار میلیارد تومان برای خرید سرور، می‌توان کیفیت ایتا را به سطح واتس‌اپ رساند تا توانایی پذیرش بدون مشکل بیش از ۲۰ میلیون کاربر را داشته باشد.
+
+🔸 هشدار درباره جاسوسی سخت‌افزاری: این مقام مسئول همچنین به موضوع استفاده از بیگ‌دیتا (داده‌های بزرگ) اشاره کرده و مدعی شده که آمریکا قوانینی برای جاسوسی در لایه‌های سخت‌افزاری و تراشه‌ها (حتی پایین‌تر از سطح سیستم‌عامل) دارد.
+
+این اظهارات در حالی مطرح می‌شود که کارشناسان حوزه تکنولوژی، موفقیت پلتفرم‌های جهانی را فراتر از صرفا تعداد سرور می‌دانند و مواردی چون امنیت، پروتکل‌های رمزنگاری، حریم خصوصی و نوآوری‌های مداوم نرم‌افزاری را از عوامل اصلی برتری آن‌ها به حساب می‌آورند.
+
+یکی از کاربرا زیر همین پست در دیجیاتو کامنت جالبی گذاشته بود:
+مامان‌بزرگ منم با چند میلیارد نیکی میناژ میشه!
+
+پ.ن: حالا فارق از این حرفا داره میگه اینا دارن از کاربراشون جاسوسی میکنن برای همین ما باید اپ های خودمون رو داشته باشیم... من حرفی ندارم.
+
+🆔 @iaghapour
+</div>
+
+## VahidOnline — post 75377
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75377_1778426245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایرنا، روز یکشنبه ۲۰ اردیبهشت ۱۴۰۵گزارش داد پاسخ تهران به آخرین طرح پیشنهادی ایالات متحده برای رسیدن به توافق بر سر پایان جنگ، برای پاکستان به عنوان میانجی مذاکرات ارسال شده است.
+
+ایرنا بدون اشاره به جزئیات بیشتر نوشت: «بر اساس طرح پیشنهادی، در این مرحله مذاکرات متمرکز بر موضوع خاتمه جنگ در منطقه خواهد بود.»
+
+وب‌سایت اکسیوس و خبرگزاری رویترز، چهارشنبه هفته گذشته گزارش دادند که واشنگتن و تهران به یک «یادداشت تفاهم یک‌صفحه‌ای» برای پایان دادن به جنگ نزدیک شده‌اند.
+
+رویترز نوشته بود در این تفاهم‌نامه حتی به تعلیق فعالیت هسته‌ای ایران یا بازگشایی تنگه هرمز که از سوی سپاه پاسداران بسته شده، اشاره‌ای نشده است.
+
+در مقابل، روزنامه وال‌استریت ژورنال گزارش داده بود که در طرح پیشنهادی آمریکا، تهران باید ثابت کند که به‌دنبال سلاح اتمی نیست، تاسیسات فردو، نطنز و اصفهان را برچیند، فعالیت زیرزمینی هسته‌ای را متوقف کند و همچنین بپذیرد غنی‌سازی را تا ۲۰ سال متوقف کند.
+
+رییس‌جمهور و وزیر خارجه آمریکا روز جمعه گفته بودند جمهوری اسلامی تا پایان همان روز قرار است به پیشنهاد ایالات متحده پاسخ دهد.
+@VahidHeadline
+ولی جمهوری اسلامی به جای جمعه، روز بسته شدن بازارها، صبر کرد یکشنبه پاسخ داد که ساعت ۸ شبش به وقت شرق آمریکا بازارهای مالی هفته کاری رو آغاز می‌کنند.
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75376
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75376_1778426245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع امارات متحده عربی روز یکشنبه ۲۰ اردیبهشت اعلام کرد که سامانه‌های پدافند هوایی این کشور با موفقیت دو پهپاد پرتاب شده از «ایران» را منهدم کردند.
+
+این وزارتخانه تاکید کرده است که از زمان ««شروع حملات آشکار ایران، پدافند هوایی امارات متحده عربی در مجموع ۵۵۱ موشک بالستیک، ۲۹ موشک کروز و ۲۲۶۵ پهپاد را منهدم کرده است.»
+وزارت دفاع امارات همچنین گزارش داده است که از زمان شروع حملات آشکار ایران، تعداد کل جانباختگان نظامی به ۳ نفر رسیده و تلفات غیرنظامی هم ۱۰ نفر از ملیت‌های پاکستانی، نپالی، بنگلادشی، فلسطینی، هندی و مصری است.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75375
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75375_1778426246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی گفته‌اند علی عبداللهی، فرمانده قرارگاه مرکزی خاتم‌الانبیا، با مجتبی خامنه‌ای دیدار کرده و گزارشی از آمادگی نیروهای مسلح، از جمله ارتش، سپاه، نیروی انتظامی، نهادهای امنیتی، مرزبانی، وزارت دفاع و بسیج ارائه داده است.
+
+بر اساس این گزارش‌ها، عبداللهی گفته نیروهای مسلح از نظر روحیه رزمی، آمادگی دفاعی و هجومی، طرح‌های راهبردی و تجهیزات لازم برای مقابله با «دشمنان» در سطح بالایی از آمادگی قرار دارند.
+
+این رسانه‌ها همچنین نوشتند مجتبی خامنه‌ای در این دیدار تدابیر تازه‌ای برای ادامه اقدامات و مقابله با دشمنان ابلاغ کرده است. با وجود انتشار متن این خبر، رسانه‌های جمهوری اسلامی تصویری از این دیدار منتشر نکردند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75374
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75374_1778426246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران درباره کشتی باری هدف ‌قرارگرفته شده در نزدیکی سواحل قطر، به نقل از منبعی که نامش را فاش نکرد، گزارش داد این کشتی با پرچم آمریکا تردد می‌کرده و متعلق به ایالات متحده بوده است.
+
+سازمان «عملیات تجارت دریایی بریتانیا» (UKMTO) صبح یکشنبه گزارش داد که یک پرتابه به سمت یک کشتی باری  در ۲۳ مایل دریایی (۳۷ کیلومتری) شمال شرقی دوحه شلیک شده است.
+بنا بر این گزارش یک آتش‌سوزی کوچک در این کشتی رخ داده که خاموش شده است و تلفات جانی نیز نداشته است.
+
+این خبر در حالی اعلام شده است که مارکو روبیو، وزیر امور خارجه آمریکا روز شنبه با محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر امور خارجه قطر، در میامی دیدار و گفتگو کرد و شراکت دو کشور را برای بازدارندگی در برابر تهدیدات و تقویت ثبات در خاورمیانه حائز اهمیت خواند.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75373
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75373_1778426247.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+خبرگزاری فارس می‌گوید «یک نفتکش حمل‌کننده گاز طبیعی مایع متعلق به قطر به نام الخریطیات» با «اجازه ایران» از تنگه هرمز عبور کرده است.
+
+بنابر این گزارش، این نفتکش «روز گذشته در دهانهٔ تنگهٔ هرمز دیده شده بود و پس از آن سامانه موقعیت‌یاب خودکار خود را خاموش کرد.»
+
+به گفته فارس، «این نفتکش که مقصدش پاکستان است، نخستین نفتکش غیرمرتبط با ایران است که از نیروی دریایی سپاه اجازه عبور از تنگه هرمز دریافت کرده است.»
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75372
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75372_1778426248.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های داخل ایران روز یک‌شنبه به نقل از مدیرعامل شرکت پایانه‌های نفتی ایران هر گونه آلودگی نفتی ناشی از تأسیسات جزیره خارک را تکذیب کردند.
+
+او گفت: «به محض انتشار این اخبار، گروه‌های متخصص اچ‌اس‌ئی و اداره شیمیایی و آزمایشگاه، همه منطقه را پایش کردند اما حتی کوچک‌ترین موردی یافت نشد.»
+
+خبرگزاری رویترز گزارش داده بود که تصاویر ماهواره‌ای ثبت‌شده در روزهای ۱۶ تا ۱۸ اردیبهشت، لکه‌ای بزرگ را در آب‌های اطراف جزیره خارک، مهم‌ترین پایانه صادرات نفت ایران، نشان می‌دهد که به گفته کارشناسان با «نشت نفت» سازگار است.
+
+بر اساس این گزارش، لکه‌ای خاکستری و سفیدرنگ در غرب جزیره خارک دیده شده که به گفته یک پژوهشگر «رصدخانه منازعه و محیط زیست»، مساحتی حدود ۴۵ کیلومتر مربع را پوشش می‌دهد.
+
+به گفته عباس اسدروز، «طبق اعلام مرکز بین‌المللی «میمک» به نمایندگی از سازمان بین‌المللی دریانوردی هیچ‌گونه نشتی در زیرساخت‌ها، مخازن ذخیره‌سازی، سیستم‌های اندازه‌گیری، اسکله‌ها، خطوط لوله این منطقه و کشتی‌های در حال بارگیری وجود ندارد.»
+
+اسدروز توضیح نداده است که لکه موجود در تصاویر نشان‌دهنده چه چیزی است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87328
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87328_1778426248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چگونه تصور می‌کنید اورانیوم بسیار غنی‌شده از ایران خارج خواهد شد؟
+
+بنیامین نتانیاهو:
+
+شما وارد می‌شوید و آن را بیرون می‌آورید. رئیس‌جمهور ترامپ به من گفته است: «می‌خواهم وارد آنجا شوم.»
+
+من زمان‌بندی خاصی برای آن ارائه نمی‌دهم، اما می‌گویم که این یک مأموریت بسیار مهم است.
+﻿ https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شرکت ایرفرانس در بیانیه‌ای اعلام کرد:
+
+به‌دلیل شرایط امنیتی، پروازها به دبی، ریاض، تل‌آویو و بیروت تا ۲۰ می (۳۰ اردیبهشت) لغو شده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پزشکیان، رئیس جمهور ایران، تنها دقایقی پس از ارسال پاسخ ایران به پیشنهاد آمریکا توسط میانجیگران پاکستانی، بیانیه‌ای منتشر کرد:
+
+او می‌گوید: «ما هرگز در برابر دشمن سر تعظیم فرود نمی‌آوریم و اگر صحبت از گفتگو یا مذاکره می‌شود، به معنای تسلیم یا عقب‌نشینی نیست. بلکه هدف، احقاق حقوق ملت ایران و دفاع از منافع ملی با قدرت و قاطعیت است.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: «ما می‌توانیم دو هفته دیگر ادامه دهیم و تک تک اهداف را هدف قرار دهیم، ما اهداف مشخصی داریم که می‌خواستیم به آنها برسیم و ۷۰ درصد آنها را انجام داده‌ایم.
+
+احتمالاً اهداف بیشتری هم وجود دارد که می‌توانیم به آنها ضربه بزنیم.»
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336487
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336487_1778426250.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، ایرانیان مقیم سوئیس یکشنبه ۲۰ اردیبهشت در پی فراخوان شاهزاده رضا پهلوی، علیه اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران، در شهر ژنو تجمع کردند.
+</div>
+
+## IranIntlTV — post 336486
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336486_1778426252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم ایتالیا، یکشنبه ۲۰ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهر بولونیا تجمع کردند و شعار «تا آخوند کفن نشود، این وطن وطن نشود» سردادند.
+</div>
+
+## IranIntlTV — post 336485
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336485_1778426254.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دولتی ایرنا گزارش داد پاسخ جمهوری اسلامی به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ، به میانجی پاکستانی تحویل داده شده است.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336484
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336484_1778426255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند در پاسخ جمهوری اسلامی درباره توافق خاتمه جنگ به میانجی پاکستانی، بر پایان جنگ در همه جبهه‌ها، به‌ویژه لبنان، و تامین امنیت کشتیرانی تاکید شده است.
+
+پیش‌تر دونالد ترامپ گفته بود انتظار دارد هر چه سریع‌تر پاسخ جمهوری اسلامی را دریافت کند.
+https://iranintl.com/202605106999
+</div>
+
+## IranIntlTV — post 336483
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336483_1778426256.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد ایرانیان مقیم هامبورگ در آلمان روز یکشنبه ۲۰ اردیبهشت‌ماه در پی فراخوان شاهزاده رضا پهلوی، در اعتراض به اعدام‌های جمهوری اسلامی و قطع اینترنت در ایران راهپیمایی کردند.
+</div>
+
+## IranIntlTV — post 336482
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336482_1778426258.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم بریتانیا، یکشنبه ۲۰ اردیبهشت در اعتراض به اعدام‌های جمهوری اسلامی، در شهرهای نیوکسل و بیرمنگام تجمع کردند و شعار دادند: «ایران آری، آخوند نه»
+</div>
+
+## IranIntlTV — post 336481
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336481_1778426260.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع لندن در گفت‌وگو با آیدین مقیمی، خبرنگار ایران‌اینترنشنال، گفت: «تا وقتی که اینترنت مردم ایران قطع باشد، صدای ایرانیان داخل کشور در سراسر جهان هستیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336480
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336480_1778426261.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای یکشنبه ۲۰ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 336479
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336479_1778426262.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، نماینده آمریکا در سازمان ملل متحد، به فاکس نیوز گفت: عملیات خشم اقتصادی در حال حاضر اقتصاد ایران را ویران می‌کند. پول آنها در حال سقوط آزاد است، ذخایر ارزی آنها نزدیک به صفر است.
+https://iranintl.com/202605109384
+</div>
+
+## IranIntlTV — post 336476
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336476_1778426263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با «فول مژر» درباره اورانیوم غنی‌شده در ایران گفت: ما بالاخره به آن دست پیدا می‌کنیم، ما آنجا را تحت نظارت داریم. همه‌چیز تحت نظر است. اگر کسی به آن محل نزدیک شود، خبردار می‌شویم و نابودش می‌کنیم.
+https://iranintl.com/202605102225
+</div>
+
+## IranIntlTV — post 336475
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336475_1778426263.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معصومه طاهرخانی، تحلیل‌گر اقتصادی، گفت ایرانیان در حال حاضر درگیر «اقتصاد بقا» هستند. او افزود: «وقتی سفره مردم کوچک‌تر، ارزان‌تر و بی‌کیفیت‌تر می‌شود، نسلی شکل می‌گیرد که با مشکلات سلامت روبه‌رو خواهد بود و این موضوع تهدیدی جدی برای آینده ایران به شمار می‌رود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336474
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336474_1778426265.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع لندن در گفت‌وگو با آیدین مقیمی، خبرنگار ایران‌اینترنشنال، گفت: «همه جهان باید در جریان اعدام‌ها در ایران قرار بگیرد و ما با حضور در تجمع‌ها صدای زندانیان سیاسی هستیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336473
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336473_1778426266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس اسدروز، مدیرعامل شرکت پایانه‌های نفتی ایران، گزارش‌ها درباره وجود لکه نفتی در جزیره خارک را رد کرد و گفت پس از انتشار این اخبار، گروه‌های تخصصی کل منطقه را پایش کردند اما هیچ نشتی شناسایی نشد.
+
+او افزود: هیچ‌گونه نشتی در زیرساخت‌ها، مخازن ذخیره‌سازی، سیستم‌های اندازه‌گیری، اسکله‌ها، خطوط لوله این منطقه و کشتی‌های در حال بارگیری وجود ندارد.
+
+آسوشیتدپرس جمعه ۱۸ اردیبهشت گزارش داد لکه‌ای نفتی از بخش غربی جزیره خارک، در حال نشت است.
+آمی دنیل، مدیرعامل شرکت اطلاعات دریایی «ویندوارد ای‌آی»، به ای‌پی گفت از روز سه‌شنبه، معادل حدود ۸۰ هزار بشکه نفت از جزیره خارک نشت کرده است.
+https://iranintl.com/202605108217
+</div>
+
+## Shin_Persian — post 5932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 10 May 2026 14:37:49 UTC
+
+State-run YJC citing Al Jazeera:
+"Pakistan delivered [Islamic Regime of] Iran's response to the United States on the ceasefire terms"
+
+فارسی
+
+خبرگزاری دولتی YJC به نقل از الجزیره:
+«پاکستان پاسخ [رژیم اسلامی] ایران درباره شرایط آتش‌بس را به ایالات متحده تحویل داد»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 5931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.19 released
+
+• **UI accessibility
+• Also rolling up the exit_node Content-Encoding fix (#964)
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.19 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1919
+</div>
+
+## ManotoTV — post 105248
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105248_1778426267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هلسینکی | فنلاند؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105247
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105247_1778426269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر منوتو با ارسال ویدیویی از گرانی اقلام خوراکی در فروشگاه می‌گوید:
+«سپاه ما رو به خواری و ذلت انداخته»
+</div>
+
+## ManotoTV — post 105246
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105246_1778426270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینسبروک | اتریش؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105245
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105245_1778426271.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژنو | سوئیس؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## ManotoTV — post 105243
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105243_1778426273.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان ساکن استکهلم سوئد، یکشنبه ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## FarsiVOA — post 217348
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217348_1778426274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا تقی‌زاده در عمق میدان در پاسخ به پرسش فهیمه خضر حیدری درباره آینده سیاسی ایران گفت: به رضا پهلوی رأی نخواهم داد
+</div>
+
+## FarsiVOA — post 217347
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217347_1778426275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد در هفته گذشته حدود ۷۰ موضع حزب‌الله را هدف قرار داده و بیش از ۳۰ نیروی حزب‌الله را حذف کرده است. این ارتش همچنین از رهگیری و انهدام چند موشک شلیک شده به سمت نیروهای اسرائیل در جنوب لبنان خبر داد.
+</div>
+
+## FarsiVOA — post 217346
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آغاز دومین جلسه دادگاه سران رژیم سابق سوریه؛ همه دارایی‌های بشار اسد مصادره شد
+
+◾️خبرگزاری رسمی سوریه (سانا) روز یکشنبه ۲۰ اردیبهشت، گزارش داد که دادگاه جنایی سوریه، دومین جلسه محاکمه سران رژیم سابق این کشور را آغاز کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/syria-bashar-alassad-court-criminal-political/8148477.html?withmediaplayer=1
+</div>
+
+## FarsiVOA — post 217345
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه نشانه‌های بحران در بازار دارو، دبیر انجمن پیوند کلیه ایران از کاهش ذخایر دارویی و نایاب شدن برخی آنتی‌بیوتیک‌ها خبر داده و هشدار داده است که ادامه این وضعیت می‌تواند برای بیماران دیالیزی و پیوندی مشکل‌ساز شود.
+
+فاطمه پوررضاقلی به‌طور مشخص درباره آنتی‌بیوتیک‌ها هشدار داده و گفته برخی از این داروها «بسیار نایاب» شده‌اند.
+
+صدای آمریکا روز گذشته به نقل از منابع خود در بیمارستان‌ها و داروخانه‌ها گزارش داده بود دستورالعمل‌هایی برای کاهش مصرف سرم و آنتی‌بیوتیک ابلاغ شده و توزیع این اقلام در داروخانه‌ها با تأخیر و کمتر از میزان تقاضا انجام می‌شود.
+
+گزارش کامل را در وب‌سایت صدای آمریکا بخوانید.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا تقی‌زاده، چهره شناخته‌شده مشروطه‌خواهان پادشاهی‌خواه در عمق میدان به‌شدت از عملکرد رضا پهلوی انتقاد کرد و گفت او به سوگند ولیعهدی پشت کرده است
+</div>
+
+## FarsiVOA — post 217343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سفر وزیر خزانه‌داری آمریکا به ژاپن و کره جنوبی در آستانه دیدار تاریخی پرزیدنت ترامپ و شی‌ جین‌پینگ
+
+◾️وزیر خزانه‌داری آمریکا از سفر خود به ژاپن و کره جنوبی در آستانه نشست پرزیدنت ترامپ و رئیس جمهوری چین خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/scott-bessent-travel-china-south-korea-beijing-america-japan/8148484.html
+</div>
+
+## DW_Farsi — post 124528
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124528_1778426277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶امضای "پیمان آوریل" در اعتراض به افزایش اعدام‌ها و سرکوب سیاسی در ایران
+
+بیش از صد نهاد مدنی، سیاسی و حقوق بشری با امضای یک پیمان‌نامه به نام "پیمان آوریل" به موج فزاینده اعدام‌ها و سرکوب سیاسی در ایران اعتراض و بر تداوم مبارزه برای لغو کامل مجازات اعدام و آزادی زندانیان سیاسی تأکید کردند.
+
+امضاکنندگان، اعدام را "ابزار سرکوب، ارعاب و قتل حکومتی" توصیف کرده و خواستار پایان فوری تمامی احکام اعدام در ایران شده‌اند.
+
+در بخشی از این میثاق آمده است: «ما امضاکنندگان این پیمان اعلام می‌کنیم که متحدانه و با تمام قوا علیه هر حکم و اجرای اعدام توسط جمهوری اسلامی، به هر جرم و بهانه‌ای، مبارزه می‌کنیم و برای قطع فوری اعدام‌ها در ایران پیگیرانه می‌کوشیم.»
+
+این بیانیه همچنین تأکید می‌کند که "هیچ انسانی نباید به دلیل عقیده، اعتراض، فعالیت سیاسی یا سبک زندگی خود زندانی یا مجازات شود" و بر آزادی فوری و بی‌قید و شرط تمامی زندانیان سیاسی و عقیدتی پافشاری می‌کند.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124527
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶روسیه در "روز پیروزی" از پهپاد تهاجمی جدیدش رونمایی کرد
+
+روسیه در رژه نظامی "روز پیروزی" در روز شنبه ۹ ماه مه (۱۹ اردیبهشت) برای نخستین بار از پهپاد سنگین انتحاری "گران−۵" خود رونمایی کرد.
+
+این رژه نظامی که به مناسبت گرامی‌داشت هشتاد و یکمین سالگرد پیروزی اتحاد جماهیر شوروی سابق بر آلمان نازی در مسکو برگزار شد، برخلاف سال‌های گذشته، با نمایش تانک‌ها و تجهیزات سنگین نظامی روسیه همراه نبود.
+
+در جریان این مراسم در مسکو، تصاویر این پهپاد جدید بر روی نمایشگرهای غول‌پیکر به نمایش گذاشته شد. در این تصاویر دیده می‌شد که سامانه تسلیحاتی مورد نظر با استفاده از منجنیق پرتاب می‌شود.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124526
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124526_1778426277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶ایران پاسخ خود به طرح پیشنهادی آمریکا را ارسال کرد
+
+خبرگزاری ایرنا روز یکشنبه ۲۰ اردیبهشت (۱۰ مه) در خبری اختصاصی نوشت جمهوری اسلامی پاسخ خود به آخرین متن پیشنهادی آمریکا برای خاتمه جنگ را به میانجی پاکستانی ارسال کرده است.
+
+ایرنا نوشته بر اساس طرح پیشنهادی، در این مرحله، مذاکرات متمرکز بر موضوع خاتمه جنگ خواهد بود.
+
+پیش از این مارکو روبیو، وزیر خارجه آمریکا، روز جمعه ۸ مه (۱۸ اردیبهشت) در جریان سفر خود به ایتالیا گفته بود ایالات متحده انتظار دارد پاسخ ایران به پیشنهاد اخیر واشنگتن برای پایان دادن به جنگ را دریافت کند. روبیو گفته بود امیدوار است محتوای این پاسخ، زمینه را برای ورود به یک روند "جدی" مذاکراتی فراهم سازد.
+
+به گفته برخی منابع خبری، بر اساس طرح پیشنهادی که توسط ایالات متحده ارائه شده است و در صورت پذیرش آن توسط ایران، جنگ رسما پیش از شروع مذاکرات در مورد مسائل مهم‌تری، از جمله برنامه هسته‌ای ایران، پایان می‌یابد.
+
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124525
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124525_1778426278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶فشار بر زندانیان قزلحصار؛ از اعمال خشونت تا محرومیت از دارو و غذا
+
+"سازمان حقوق بشر ایران" مستقر در نروژ از افزایش خشونت شدید علیه زندانیان محبوس در زندان قزلحصار و کمبود اقلام خوراکی و دارویی در این زندان خبر داد.
+
+در گزارش این سازمان حقوق بشری از جمله آمده است: «تعدادی از زندانیان واحد ۴ این زندان با لوله‌های پلی‌اتیلن مورد ضرب‌وجرح شدید قرار گرفته‌اند و زندانبا‌ن‌هایی با سابقه اعمال خشونت علیه زندانیان به این واحد منتقل شده‌اند.»
+
+در این گزارش از احمد ترکمان، افسر نگهبان واحد ۲ زندان قزل‌حصار نام برده شده که به اعمال خشونت مشهور است و شخصا در مقابل چشمان شماری از زندانیان، یک زندانی تبعه افغانستان به نام عبدالعهد تورن ان‌شاءالله را "با لوله پلی‌اتیلن سه اینچی مورد ضرب‌وجرح شدید" قرار داده است.
+
+همچنین زندانیان واحد ۳ زندان قزل‌حصار با فشارهای شدید معیشتی مواجه هستند و دسترسی محدودی به امکانات درمانی دارند؛ قیمت اقلام خوراکی چند برابر شده و حتی آب معدنی هم نایاب است.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 13830
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13830_1778426278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ در تروث سوشال لحظاتی قبل منتشر کرد.
+</div>
+
+## Persian_Trend_Official — post 13829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رئیس انرژی: پارسال 9 هزار مگاوات کمبود برق داشتیم و امسال 24 هزارمگاوات؛ مردم برای قطعی های برق در هر 7 روز هفته خودشونو آماده کنن.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13828
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13828_1778426279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ : نگفتم عملیات نظامی علیه ایران پایان یافته، بلکه گفتم آن‌ها شکست خورده‌اند !!!
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157034
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸یک هفته پس از سخنان امام جمعه رشت درباره لزوم برخورد با «بی‌حجابی»، یکی از مداحان حکومتی در تجمعی، زنان« کم‌حجابی» را که «به میدان آمده‌اند» «دختران این کشور» توصیف کرد.
+
+🔸پیش‌تر امام جمعه رشت خواستار برخورد با زنانی شده بود که از حجاب اجباری تبعیت نمی‌کنند.
+
+🔸جمهوری اسلامی سابقه‌ای طولانی در محدود کردن حقوق زنان دارد و طی دهه‌های گذشته قوانین سخت‌گیرانه‌ای درباره پوشش زنان اعمال کرده است.
+
+🔸با این حال، از زمان اعتراض‌های «زن، زندگی، آزادی» تاکنون، زنان با حضور و نافرمانی مدنی، حکومت را برای کاهش محدودیت‌ها تحت فشار قرار داده‌اند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 19901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 معاون وزیر امور خارجه جمهوری اسلامی:
+
+حضور ناوهای جنگی فرانسه و انگلیس در تنگه هرمز با واکنش فوری و قاطع مواجه خواهد شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19900
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19900_1778426279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه داداش تو نمیدونی جمهوری اسلامی خیلی خوب داره دووم میاره جلو آمریکا و اسرائیل :
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19899
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19899_1778426280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نتانیاهو:
+
+جنگ با ایران تمام نشده است زیرا هنوز اورانیوم غنی شده وجود دارد که باید از ایران خارج شود.
+
+هنوز سایت های غنی سازی وجود دارد که باید برچیده شوند. هنوز هم پروکسی هایی وجود دارند که ایران از آنها پشتیبانی می کند و موشک های بالستیکی که آنها می خواهند تولید کنند.
+
+ما خیلی اونارو تحقیر کردیم، اما جای کار وجود دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19897
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/19897" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 19896
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19896_1778426282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge20
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## IranianMinds — post 19895
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19895_1778426283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+دو گروه از رهبرانشان از بین رفته‌اند، گروه A رفته، گروه B هم رفته، و احتمالاً گروه C هم از بین رفته است.
+
+ما با افرادی طرف هستیم که نوعی قدرت دارند. خیلی جالب است آن‌ها یک توافق می‌کنند و بعد آن را می‌شکنند.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19894
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19894_1778426284.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ایران از نظر نظامی شکست خورده است. شاید در ذهن خودشان هنوز این را ندانند، اما من فکر می‌کنم می‌دانند، چون من مستقیما با آن‌ها در ارتباط هستم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+من مجبور بودم از نظر نظامی وارد عمل شوم، چون با اطمینان می‌دانستم ایران در مسیر دست‌یابی به سلاح هسته‌ای قرار دارد
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+تحت هیچ شرایطی ما نباید اجازه بدیم اونا سلاح هسته ای داشته باشن ، چون اونا دیوانه اند!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+اگر ایران به سلاح هسته‌ای دست پیدا کند، آن را علیه اسرائیل و خاورمیانه به کار می‌برد!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : ما در ایران اهداف مشخصی داشتیم که دنبال می‌کردیم و احتمالا حدود ۷۰ درصدشون رو محقق کردیم @IranianMinds
+</div>
+
+## IranianMinds — post 19889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+هنوز اهداف دیگری در ایران داریم که همچنان احتمال هدف قرار دادنشان بسیار بالاست!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+ما در ایران اهداف مشخصی داشتیم که دنبال می‌کردیم و احتمالا حدود ۷۰ درصدشون رو محقق کردیم
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+می‌توانیم تا دو هفته دیگر علیه ایران حرکت کنیم و به هر یک از اهداف مشخص‌شده ضربه بزنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+اگه امروز جنگ رو ترک کنیم، 20 سال طول می‌کشد تا ایران توانایی‌هایش را بازسازی کند
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19885
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19885_1778426286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ داره ویدیوهایی از مارک لوین منتشر می‌کنه که توش میگه فشار روی ایران باید ادامه پیدا کنه و حتی احتمال داره برای قوی‌تر کردن موضع آمریکا قبل از مذاکرات، یه دور دیگه درگیری و جنگ هم اجتناب‌ناپذیر باشه!
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 280666
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_280666_1778426287.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینستاگرام روز ۱۸ اردیبهشت ۱۴۰۵ اعلام کرد که گزینه ارسال پیام‌های مستقیم با فناوری حریم خصوصی بسیار امن را حذف می‌کند. این در حالی است که این پلتفرم سال‌ها این فناوری را به عنوان آینده اینستاگرام معرفی می‌کرد.
+
+مارک زاکربرگ، مدیرعامل متا، در سال ۲۰۱۹ وعده داد که اجرای رمزگذاری سرتاسری در سراسر برنامه‌هایش، پلتفرم‌هایش را ایمن‌تر و مطمئن‌تر خواهد کرد. اما ماه گذشته این شرکت از این وعده خود دست کشید؛ اقدامی که مورد تحسین گروه‌های مجری قانون قرار گرفت اما فعالان حریم خصوصی به آن انتقاد کردند.
+@BBCPersian
+https://bbc.in/4fc1lAT
+</div>
+
+## BBCPersian — post 280665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مدیرعامل شرکت پایانه‌های نفتی ایران ایجاد یک لکه نفتی در سواحل جزیره خارگ را «ادعای کذب و به دور از واقعیت» خواند.
+
+به گزارش رسانه‌های ایران، عباس اسدروز گفت: «به محض انتشار این اخبار، گروه‌های متخصص اچ‌اس‌ئی [سلامت و ایمنی]، اداره شیمیایی و آزمایشگاه، همه منطقه را پایش کردند اما حتی کوچک‌ترین موردی یافت نشد.»
+
+به گفته او، نه مرکز بین‌المللی میمک، وابسته به سازمان بین المللی دریانوردی، نه ایران گزارشی از آلودگی در این منطقه ثبت نکرده‌اند.
+
+آقای اسدروز همچنین گفت: «روایت‌سازان مدعی لکه‌ای هستند که به سمت دریا می‌رود، در حالی که با توجه به جهت باد شمال‌غربی (۲۰ گره دریایی) به سمت جنوب شرقی، اگر لکه‌ای وجود داشت باید به سمت ساحل می‌آمد.»
+
+اشاره آقای اسدروز به پست نهاد غیردولتی «رصدخانه درگیری و محیط زیست» در شبکه ایکس است که نوشته بود: «منشا اولیه هنوز مشخص نیست و این لکه در حال حرکت به سمت جنوب است و به نظر نمی‌رسد به‌درستی مهار شود.»
+
+https://bbc.in/4u2uB1B
+@BBCPersian
+</div>
+
+## BBCPersian — post 280664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹چند خبر کوتاه از ایران
+
+▪️وزارت خارجه ایران رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی، را به سیاسی‌کاری متهم کرد. سخنگوی وزارت خارجه ایران در شبکه اجتماعی ایکس نوشت وظیفه آژانس «راستی‌آزمایی است، نه ارسال پیام‌های سیاسی در مورد تنگه هرمز، موشک‌های ایران یا نحوه رفتار تهران.» به گفته اسماعیل بقایی «وقتی بی‌طرفی حرفه‌ای قربانی رفتارهای سیاسی یا جاه‌طلبی‌های شخصی بشود، اعتبار نهادها دچار فرسایش می‌شود و بعد از چندی اثربخشی آنها نیز مخدوش می‌گردد.» آقای گروسی هفته گذشته در مصاحبه‌ای گفته بود توافق آمریکا و ایران نیازمند اراده سیاسی در تهران است.»
+
+▪️نایب رئیس مجلس ایران گفت: «تنگه هرمز با عملیات نظامی باز نمی‌شود.» علی نیکزاد در نطق پیش از دستور در جلسه اینترنتی امروز مجلس گفت: «سال‌ها بود که تنگه هرمز با نجابت ملت ایران مورد استفاده شما قرار می‌گرفت. این شما بودید که جنگ‌افروزی کردید و امروز باید به نظم جدید این آبراه استراتژیک عادت کنید.»
+
+▪️مسعود پزشکیان در جلسه کارگروه بازسازی پس از جنگ گفت که «اگر «سخنی از گفت‌وگو یا مذاکره مطرح می‌شود، معنای آن تسلیم یا عقب‌نشینی نیست» و هدف «احقاق حقوق ملت ایران و دفاع مقتدرانه از منافع ملی است.»
+
+https://bbc.in/4u0SGG1
+@BBCPersian
+</div>
+
+## BBCPersian — post 280663
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نخست‌وزیر قطر: همه طرف‌ها باید برای پایان دادن به جنگ تلاش کنند
+
+نخست‌وزیر قطر با وزیر خارجه ایالات متحده درباره اوضاع منطقه و میانجیگری پاکستان برای پایان جنگ گفت‌‌وگو کرده است.
+
+در بیانیه‌ دولت قطر آمده است که محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر، در دیدار با مارکو روبیو در میامی خواستار توجه همه طرف‌ها به تلاش‌های میانجیگرانه و «رسیدگی به ریشه‌های بحران از طریق روش‌های مسالمت‌آمیز» شده است.
+
+بنابر این بیانیه، قطر خواهان «توافقی جامع» برای صلح پایدار در منطقه است.
+
+ساعاتی پس از دیدار محمدبن عبدالرحمن آل ثانی با وزیر خارجه آمریکا، او با عباس عراقچی، وزیر خارجه ایران، تلفنی گفت‌وگو کرد.
+
+خبرگزاری دولتی ایرنا نوشت در این تماس تلفنی «پیرامون آخرین تحولات منطقه‌ای و روندهای جاری دیپلماتیک» گفت‌وگو شده است اما جزئیات بیشتری منتشر نکرد.
+
+https://bbc.in/4wiFopY
+@BBCPersian
+</div>
+
+## BBCPersian — post 280662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻قطر حمله به یک کشتی تجاری در آبهایش را تایید کرد
+
+وزارت دفاع قطر تایید کرد یک پهپاد کشتی تجاری که از امارات به سمت بندر مسیعید در حرکت بود، در آب‌های قطر هدف قرار گرفته است.
+
+بنابر اعلام وزارت دفاع قطر، در اثر اصابت این پهپاد آتش‌سوزی محدودی در کشتی رخ داد اما تلفات جانی نداشت.
+
+در این بیانیه به مبدا حرکت این پهپاد اشاره نشده است.
+
+بنابر این گزارش، پس از اطفای حریق این کشتی که از امارات حرکت کرده بود به سمت بندر مسیعید ادامه داد.
+
+برخی رسانه‌های ایران می‌گویند این کشتی فله‌بر متعلق به آمریکا بوده و با پرچم آمریکا حرکت می‌کرد.
+
+ایران تهدید کرده است شناورهای آمریکا را هدف قرار خواهد داد.
+
+https://bbc.in/4nljC0U
+@BBCPersian
+</div>
+
+## idfinfarsi — post 11562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل تروریست‌های نخبه و دیگر تروریست‌هایی را که نیروهای ما را در نوار غزه تهدید می‌کردند، به هلاکت رساند
+
+نیروهای ارتش اسرائیل در فرماندهی جنوب، امروز (یکشنبه) تروریست‌های مسلح نخبه از سازمان تروریستی حماس را که برای پیشبرد توطئه‌های تروریستی در کوتاه‌مدت علیه نیروهای ارتش اسرائیل در جنوب نوار غزه فعالیت می‌کردند، شناسایی کردند.
+
+در حادثه دیگری که دیشب (شنبه) رخ داد، نیروهای تیم رزمی تیپ ۱۴ که در شمال نوار غزه فعالیت می‌کردند، دو تروریست را که در منطقه خط زرد اقدامات مشکوکی را روی زمین انجام می‌دادند و به گونه‌ای به نیروها نزدیک می‌شدند که تهدید فوری ایجاد می‌کردند، شناسایی کردند.
+
+در هر دو حادثه، نیروی هوایی، تحت هدایت نیروها، تروریست‌ها را به هلاکت رساند تا تهدید را از بین ببرد.
+
+قبل از حملات، اقداماتی برای به حداقل رساندن آسیب به غیرنظامیان، از جمله استفاده از سلاح‌های دقیق و رصد هوایی، انجام شد.
+
+ارتش اسرائیل در فرماندهی جنوب مطابق با توافق در منطقه مستقر هستند و به عملیات خود برای از بین بردن هرگونه تهدید فوری ادامه خواهند داد.
+</div>
+
+## Hranews — post 112866
+
+<div align="center">
+  <img src="telegram/content/Hranews_112866_1778426288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥 دعوت به همکاری با خبرگزاری هرانا
+
+خبرگزاری هرانا، با بیش از دو دهه سابقه در حوزه گزارشگری و مستندسازی حقوق بشر، در راستای توسعه فعالیت‌های خود از علاقه‌مندان واجد شرایط برای همکاری دعوت می‌کند.
+
+هرانا در این مرحله بیش از آن‌که به دنبال افراد با سابقه حرفه‌ای باشد، به دنبال افرادی متعهد، دقیق و آموزش‌پذیر است؛ کسانی که دغدغه واقعی حقوق بشر دارند و مایل‌اند در یک چارچوب حرفه‌ای، مهارت‌های خود را توسعه دهند.
+
+زمینه‌های همکاری شامل:
+گزارشگری، ویراستاری، ترجمه، مدیریت شبکه‌های اجتماعی و سایر حوزه‌های مرتبط
+
+ویژگی‌های مورد انتظار:
+
+* تسلط کافی به زبان فارسی (خواندن و نوشتن)
+* دقت، مسئولیت‌پذیری و توانایی یادگیری مستمر
+* علاقه و حساسیت نسبت به موضوعات حقوق بشر
+* آمادگی برای فعالیت در چارچوب‌های سازمان‌یافته و حرفه‌ای
+
+❗️ توجه: درخواست‌ها صرفاً در صورتی بررسی خواهند شد که اطلاعات ثبت‌شده در فرم (از جمله کشور محل سکونت و سایر شرایط اعلام‌شده) با الزامات همکاری همخوانی داشته باشد.
+
+همکاری با هرانا فرصتی است برای کسب تجربه عملی در حوزه مستندسازی و فعالیت‌های حقوق بشری در یک نهاد با سابقه و ساختار حرفه‌ای.
+
+📎 برای ثبت درخواست همکاری، لطفا فرم زیر را تکمیل کنید:
+https://hra.news/4cBjHqs
+
+📩 در صورت بروز مشکل در تکمیل فرم، می‌توانید رزومه و اطلاعات تماس خود را به آدرس زیر ارسال نمایید:
+info@hra-news.org
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## Hranews — post 112865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قتل و به آتش کشیدن پیکر یک کودک ۹ ساله در سراوان؛ متهم بازداشت شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – اواخر فروردین‌ماه امسال پیکر بی‌جان فاطمه‌ زهرا حسین‌بر، #کودک ۹ ساله اهل شهر گُشت از توابع شهرستان سراوان، پس از چند روز ناپدید شدن، در شرایطی خشونت‌بار در حاشیه شهر کشف شد. فرمانده انتظامی سراوان اکنون از بازداشت متهم این پرونده خبر داده است.
+
+ادامه مطلب
+
+#فاطمه_زهرا_حسین‌بر
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## manototv — post 105248
+
+<div align="center">
+  <a href="telegram/content/manototv_105248_1778426289.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هلسینکی | فنلاند؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105247
+
+<div align="center">
+  <a href="telegram/content/manototv_105247_1778426290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشگر منوتو با ارسال ویدیویی از گرانی اقلام خوراکی در فروشگاه می‌گوید:
+«سپاه ما رو به خواری و ذلت انداخته»
+</div>
+
+## manototv — post 105246
+
+<div align="center">
+  <a href="telegram/content/manototv_105246_1778426292.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینسبروک | اتریش؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105245
+
+<div align="center">
+  <a href="telegram/content/manototv_105245_1778426293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژنو | سوئیس؛ گردهمایی ایرانیان ـ گزارشگر ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## manototv — post 105243
+
+<div align="center">
+  <a href="telegram/content/manototv_105243_1778426294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان ساکن استکهلم سوئد، یکشنبه ۲۰ اردیبهشت ۱۴۰۵
+</div>
+
+## alonews — post 119100
+
+<div align="center">
+  <a href="telegram/content/alonews_119100_1778426296.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شرکت ایرفرانس در بیانیه‌ای اعلام کرد:
+به‌دلیل شرایط امنیتی، پروازها به دبی، ریاض، تل‌آویو و بیروت تا ۲۰ می (۳۰ اردیبهشت) لغو شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119099
+
+<div align="center">
+  <a href="telegram/content/alonews_119099_1778426296.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: نگفتم عملیات نظامی علیه ایران پایان یافته، بلکه گفتم آنها شکست خوردن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119098
+
+<div align="center">
+  <a href="telegram/content/alonews_119098_1778426297.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نخست‌وزیر پاکستان اعلام کرد که ژنرال عاصم منیر، رئیس ستاد ارتش، به او اطلاع داده است که پاسخی از سوی ایران به پیشنهاد آمریکا دریافت شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119097
+
+<div align="center">
+  <a href="telegram/content/alonews_119097_1778426297.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده:
+بیش از 20 ناو جنگی آمریکا محاصره ایران را اجرا میکنند
+
+
+🔴نیروهای CENTCOM 61 کشتی تجاری را هدایت کرده اند و 4 کشتی را برای اطمینان از انطباق غیرفعال کرده اند.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119096
+
+<div align="center">
+  <a href="telegram/content/alonews_119096_1778426297.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈چگونه تصور می‌کنید اورانیوم بسیار غنی‌شده از ایران خارج شود؟
+
+
+🔴نتانیاهو: شما وارد می‌شوید و آن را بیرون می‌آورید. رئیس‌جمهور ترامپ به من گفته است، «می‌خواهم وارد آنجا شوم.»
+
+
+🔴من جدول زمانی برای آن نمی‌دهم، اما می‌گویم این یک مأموریت فوق‌العاده مهم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119095
+
+<div align="center">
+  <a href="telegram/content/alonews_119095_1778426298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بنیامین نتانیاهو: من فکر می‌کنم جنگ با ایران دستاوردهای زیادی داشته است، اما هنوز تمام نشده، زیرا هنوز مواد هسته‌ای، اورانیوم غنی‌شده وجود دارد که باید از ایران خارج شود.
+
+
+🔴هنوز سایت‌های غنی‌سازی وجود دارند که باید منهدم شوند. هنوز نیروهای نیابتی وجود دارند که ایران از آن‌ها حمایت می‌کند.
+
+
+🔴موشک‌های بالستیکی وجود دارند که آن‌ها هنوز می‌خواهند تولید کنند. حالا، ما بخش زیادی از آن را تضعیف کرده‌ایم، اما همه آن‌ها هنوز وجود دارند و کارهایی باید انجام شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119094
+
+<div align="center">
+  <a href="telegram/content/alonews_119094_1778426300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من هشت جنگ را به پایان رساندم و ما بهترین اقتصاد را که تاکنون داشته‌ایم داریم.
+
+
+🔴همین که وارد اتاق می‌شوم، می‌بینم شاخص S&P در طول یک جنگ به اصطلاح، به بالاترین حد جدیدی رسیده است.
+
+
+🔴من آن را یک درگیری نظامی می‌نامم چون نسبتاً آسان بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119093
+
+<div align="center">
+  <a href="telegram/content/alonews_119093_1778426300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: حتی اگر به اهداف باقی‌مانده در ایران حمله نکنیم، بازسازی آنها سال‌ها طول خواهد کشید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119092
+
+<div align="center">
+  <a href="telegram/content/alonews_119092_1778426300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما اکنون نفت و گازی بیشتر از مجموع روسیه و عربستان سعودی تولید می‌کنیم.
+
+
+🔴 تا پایان امسال، این عدد احتمالاً دو برابر خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119091
+
+<div align="center">
+  <a href="telegram/content/alonews_119091_1778426301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: ناتو ثابت کرده که یک ببر کاغذی است. آن‌ها برای کمک آنجا نبودند.
+
+
+🔴جالب این است که بسیاری از کشورهای ناتو از تنگه هرمز استفاده می‌کنند — ما از تنگه استفاده نمی‌کنیم.
+
+
+🔴ما به تنگه نیاز نداریم. ما این کار را برای کمک به اسرائیل و عربستان سعودی و قطر و امارات متحده عربی و دیگران انجام دادیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119090
+
+<div align="center">
+  <a href="telegram/content/alonews_119090_1778426303.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره جمهوري اسلامي: رهبران آن‌ها رفته‌اند، تیم A رفته، تیم B رفته و احتمالاً تیم C رفته است.
+
+
+🔴ما با افرادی طرف هستیم که قدرتی خاص دارند. بسیار جالب است — آن‌ها توافق می‌کنند و سپس آن را نقض می‌کنند.
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119089
+
+<div align="center">
+  <a href="telegram/content/alonews_119089_1778426304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: اگر من سلیمانی را از بین نمی‌بردم، فکر می‌کنم ایران کشور متفاوتی بود. کشور شایسته‌تری می‌شد.
+
+
+🔴اما او نابغه‌ای شرور بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119088
+
+<div align="center">
+  <a href="telegram/content/alonews_119088_1778426306.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره ایران: ما نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد چون آن‌ها دیوانه هستند.
+
+
+🔴اگر من توافق هسته‌ای اوباما با ایران را لغو نکرده بودم، آن‌ها اکنون آن را داشتند و ممکن بود از آن علیه اسرائیل و خاورمیانه و شاید فراتر استفاده کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119086
+
+<div align="center">
+  <a href="telegram/content/alonews_119086_1778426306.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما اهداف مشخصی داریم که در ایران به دنبال دستیابی به آنها بوده‌ایم و شاید حدود ۷۰ درصد از آنها را محقق کرده باشیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119085
+
+<div align="center">
+  <a href="telegram/content/alonews_119085_1778426307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران از نظر نظامی شکست خورده است و ممکن است خودشان متوجه این موضوع نباشند، اما من فکر می‌کنم که متوجه هستند.
+
+
+🔴ایران شکست خورده است، اما این به معنای نابودی کامل آن نیست.
+
+
+🔴ما می‌توانیم تا دو هفته دیگر علیه ایران اقدام نظامی انجام دهیم و به تک تک اهداف شناسایی شده حمله کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119084
+
+<div align="center">
+  <a href="telegram/content/alonews_119084_1778426307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: هنوز اهدافی داریم که محقق نشده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119083
+
+<div align="center">
+  <a href="telegram/content/alonews_119083_1778426307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما می‌توانیم تا دو هفته دیگر علیه ایران اقدام نظامی انجام دهیم و به تک تک اهداف شناسایی شده حمله کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 17:40
 ---
 
