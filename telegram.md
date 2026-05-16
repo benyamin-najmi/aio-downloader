@@ -7,6 +7,893 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 20:49
+---
+
+## VahidOOnLine — post 240517
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240517_1778951974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی آمریکا در آفریقا (AFRICOM)، با انتشار ویدیویی در ایکس، از عملیات شامگاه جمعه ۲۵ اردیبهشت خبر داد که به کشته شدن شمار زیادی از جنگجویان داعش در شمال شرقی نیجریه منجر شد.
+پیش‌تر، ترامپ در تروث‌سوشال اعلام کرده بود ابو بلال المینوکی، نفر دوم داعش در جهان، در این عملیات کشته شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240516
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240516_1778951975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشتوتگارت، تجمع در حمایت از مردم ایران، ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240515
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240515_1778951977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مالمو سوئد، راهپیمایی ایرانیان، ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240514
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240514_1778951979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم نروژ روز شنبه ۲۶ اردیبهشت با در دست گرفتن پرچم‌های شیروخورشید علیه جمهوری اسلامی در شهر اسلو راهپیمایی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240513
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240513_1778951991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان استرالیا روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی تجمع کرده و ضمن حمل پرچم شیروخورشید ترانه‌های ملی را هم‌خوانی کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در جریان جشنواره «فانوس نیلوفر» در سئول، پایتخت کره جنوبی، ربات‌های انسان‌نما با لباس راهبان بودایی در مراسمی نمادین شرکت کردند.
+این جشنواره که به مناسبت تولد بودا برگزار می‌شود، یکی از مهم‌ترین رویدادهای فرهنگی و مذهبی کره جنوبی به‌شمار می‌رود و هر ساله با نمایش فانوس‌های رنگارنگ و برنامه‌های سنتی همراه است.
+حضور ربات‌ها در این مراسم، ترکیبی از سنت و فناوری را به نمایش گذاشت و توجه بازدیدکنندگان و رسانه‌ها را به خود جلب کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240511
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240511_1778951993.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در گفت‌وگوی تلفنی با آنتوان اولار، خبرنگار بی‌اف‌ام تی‌وی در واشنگتن، گفت که حکومت ایران بهتر است به توافق برسد. او افزود: «اگر این کار را نکنند، دوران بسیار بدی در انتظارشان خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240510
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240510_1778951994.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ کاخ کرملین روز شنبه ۲۶ اردیبهشت، با انتشار بیانیه‌ای اعلام کرد که ولادیمیر پوتین، رئیس‌جمهوری روسیه، در تماسی تلفنی با همتای اماراتی خود، شیخ محمد بن زاید آل نهیان، درباره مناقشات مربوط به ایران گفتگو کرده است.
+
+بر اساس این بیانیه، «هر دو طرف بر اهمیت تداوم فرآیندهای سیاسی و دیپلماتیک با هدف دستیابی به توافق‌های صلح مبتنی بر سازش تأکید کردند.»
+
+پوتین همچنین در این گفتگو از امارات متحده عربی بابت حمایت‌ها و نقش‌آفرینی در موضوعات بشردوستانه مرتبط با جنگ اوکراین قدردانی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240509
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در ادامه سفر سید محسن نقوی، وزیر کشور پاکستان به تهران، او با وزیر کشور جمهوری اسلامی دیدار و درباره گسترش همکاری‌های دوجانبه گفتگو کرد.
+وزیر کشور جمهوری اسلامی در این دیدار با تاکید بر روابط تاریخی دو کشور گفت مرزهای ایران و پاکستان «مرزهای دوستی، برادری و امنیت» است و دو طرف بر توسعه همکاری‌ها در حوزه‌های سیاسی، اقتصادی، تجاری و امنیتی و همچنین تسهیل تجارت مرزی توافق دارند.
+در مقابل، وزیر کشور پاکستان نیز با قدردانی از میزبانی تهران اعلام کرد گفتگوهای مفصلی درباره امنیت مرزها و روابط دوجانبه انجام شده و ابراز امیدواری کرد این مذاکرات به‌زودی به نتایج ملموس منجر شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240508
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240508_1778951995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی زینی‌وند، سخنگوی وزارت کشور، گفت: «محوریت تصمیم‌گیری در کشور خصوصا در حوزه صلح و جنگ، رهبری است. رهبری هم مسلط، فرمان دستش است و فرماندهی می‌کند. کسی در جایگاه مسئولیت، استاندار، نماینده، تریبون به‌دست، اگر خلاف سیاست‌های راهبری نظام اظهارنظر کند، شایسته نیست.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240507
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240507_1778951995.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلان | ایتالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240506
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240506_1778951997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوردو فرانسه، تجمع هفتگی همراه با تصویر جاویدنامان انقلاب ملی، شنبه ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240505
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240505_1778951998.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوداپست | مجارستان؛ گردهمایی ایرانیان ـ گزارشگر ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240504
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240504_1778951999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلن، راهپیمایی ایرانیان، شنبه ۲۶ اردیبهشت
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9164
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9164_1778952001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸«اگر به آمریکایی‌ها آسیب بزنید، یا در حال برنامه‌ریزی برای آسیب زدن به آمریکایی‌ها باشید، ما شما را پیدا خواهیم کرد و خواهیم کشت.»
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقامات دولت ترامپ، امارات متحده عربی را تشویق می‌کنند که نقش عمیق‌تری در جنگ با ایران ایفا کند؛ از جمله حتی احتمال تصرف یکی از جزایر ایران در خلیج فارس — روزنامه تلگراف
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9162
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9162_1778952001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روز هشتم است که ایران هیچ نفت خامی در جزیره خارگ بارگیری نکرده است. ذخایر نفت در خشکی اکنون تقریباً به ظرفیت کامل رسیده‌اند. به‌احتمال زیاد یکی از خطوط لوله آسیب دیده است. ایران در حال تلاش برای یافتن نوعی راه‌حل جایگزین است. هیچ نفتکش VLCC اجازه ورود پیدا…
+</div>
+
+## pm_afshaa — post 90857
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90857_1778952002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: اگه حکومت ایران به توافق نرسه، دوران بسیار بدی در انتظارشان خواهد بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90856
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90856_1778952003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایسنا: وزیر کشور پاکستان برای دیدار با مسئولان جمهوری اسلامی ساعاتی قبل به تهران سفر کرده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337504
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337504_1778952003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی آمریکا در آفریقا (AFRICOM)، با انتشار ویدیویی در ایکس، از عملیات شامگاه جمعه ۲۵ اردیبهشت خبر داد که به کشته شدن شمار زیادی از جنگجویان داعش در شمال شرقی نیجریه منجر شد.
+پیش‌تر، ترامپ در تروث‌سوشال اعلام کرده بود ابو بلال المینوکی، نفر دوم داعش در جهان، در این عملیات کشته شده است.
+</div>
+
+## IranIntlTV — post 337503
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337503_1778952004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم نروژ روز شنبه ۲۶ اردیبهشت با در دست گرفتن پرچم‌های شیروخورشید علیه جمهوری اسلامی در شهر اسلو راهپیمایی کردند.
+</div>
+
+## IranIntlTV — post 337502
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337502_1778952007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان استرالیا روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی تجمع کرده و ضمن حمل پرچم شیروخورشید ترانه‌های ملی را هم‌خوانی کردند.
+</div>
+
+## IranIntlTV — post 337501
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337501_1778952009.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر اول با نیوشا صارمی، شنبه ۲۶ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337500
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337500_1778952010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در گفت‌وگوی تلفنی با آنتوان اولار، خبرنگار بی‌اف‌ام تی‌وی در واشینگتن، گفت که حکومت ایران بهتر است به توافق برسد. او افزود: «اگر این کار را نکنند، دوران بسیار بدی در انتظارشان خواهد بود.»
+https://iranintl.com/202605163090
+</div>
+
+## IranIntlTV — post 337499
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337499_1778952010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی زینی‌وند، سخنگوی وزارت کشور، گفت: «محوریت تصمیم‌گیری در کشور خصوصا در حوزه صلح و جنگ، رهبری است. رهبری هم مسلط، فرمان دستش است و فرماندهی می‌کند. کسی در جایگاه مسئولیت، استاندار، نماینده، تریبون به‌دست، اگر خلاف سیاست‌های راهبری نظام اظهارنظر کند، شایسته نیست.»
+https://iranintl.com/202605169314
+</div>
+
+## Shin_Persian — post 6033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 16 May 2026 17:12:10 UTC
+
+A vehicle was just targeted by [IAF] UAV in Nassr Street, Western Gaza
+
+فارسی
+
+یک خودرو لحظاتی پیش توسط پهپاد [نیروی هوایی اسرائیل] در خیابان نصر، غرب غزه مورد هدف قرار گرفت.
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105531
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105531_1778952011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشتوتگارت، تجمع در حمایت از مردم ایران، ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105530
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105530_1778952012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مالمو سوئد، راهپیمایی ایرانیان، ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105529
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105529_1778952014.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلان | ایتالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105528
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105528_1778952015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوردو فرانسه، تجمع هفتگی همراه با تصویر جاویدنامان انقلاب ملی، شنبه ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105527
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105527_1778952017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوداپست | مجارستان؛ گردهمایی ایرانیان ـ گزارشگر ۲۶ اردیبهشت
+</div>
+
+## ManotoTV — post 105526
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105526_1778952018.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلن، راهپیمایی ایرانیان، شنبه ۲۶ اردیبهشت
+</div>
+
+## FarsiVOA — post 217919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر کشور پاکستان در یک سفر از پیش اعلام نشده به تهران رفت
+
+▪️به گزارش رسانه‌های داخلی در ایران، محسن نقوی وزیر کشور پاکستان، روز شنبه ۲۶ اردیبهشت برای یک سفر رسمی دو روزه وارد ایران شد. رسانه‌های دولتی جمهوری اسلامی از این سفر با عنوان یک بازدید از پیش برنامه‌ریزی نشده یاد کردند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-pakistan-interior-minister-visit-epic-fury/8150696.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تداوم دستبرد جمهوری اسلامی به دارایی مردم؛ اموال ۱۲۹ شهروند در آذربایجان‌غربی هم مصادره شد
+
+▪️رئیس کل دادگستری استان آذربایجان غربی روز شنبه ۲۶ اردیبهشت از صدور دستور توقیف اموال ۱۲۹ نفر از مخالفان جمهوری اسلامی در این استان خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/8150694.html/?nocach=1
+</div>
+
+## FarsiVOA — post 217917
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217917_1778952020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد در آخر هفته حدود ۱۰۰ موضع حزب‌الله را در نقاط مختلف جنوب لبنان هدف قرار داده است که شامل ایست‌های بازرسی، انبار تسلیحات و زیرساخت‌های دیگر حزب‌الله می‌شود.
+
+ارتش اسرائیل تاکید کرده است به مقابله با تهدیدها علیه شهروندان این کشور و نیروهای خود ادامه داده و بر اساس دستورالعمل‌های مقامات سیاسی عمل می‌کند.
+
+این ویدیو بی‌صدا است.
+</div>
+
+## FarsiVOA — post 217916
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217916_1778952021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد یک بالگرد ارتش آمریکا در جریان عملیات نظارت بر کشتی‌های تجاری بر فراز تنگه هرمز به پرواز درآمد.
+ 
+به گفته سنتکام، تا روز ۲۶ اردیبهشت، مسیر ۷۸ کشتی تجاری تغییر داده شده و چهار شناور نیز برای اطمینان از اجرای این اقدامات از کار افتاده‌اند.
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفتگو با بهزاد احمدی نیا کمبود بنزین در ایران و گزارش شهروند-خبرنگاران از تشکیل بازار سیاه
+</div>
+
+## FarsiVOA — post 217914
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگو با معین خزائلی تشدید موج توقیف اموال مخالفان جمهوری اسلامی؛ حقوقدانان: غیر قانونی است
+</div>
+
+## FarsiVOA — post 217913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوراهی دولت جدید عراق میان وعده مبارزه با فساد زیدی و فشار آمریکا برای قطع نفوذ جمهوری اسلامی
+</div>
+
+## FarsiVOA — post 217912
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217912_1778952022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی از وقوع آتش‌سوزی در یکی از انبارهای کارخانه تولید روغن موتور در مراغه، حدود ساعت ۱۰:۳۰ ‌روز شنبه، ۲۶ اردیبهشت ۱۴۰۵، خبر دادند و اعلام کردند آتش حدود ساعت ۱۸ به طور کامل مهار شد. به نقل از فرماندار مراغه علت آتش‌سوزی در دست بررسی است اما این حادثه تلفات جانی نداشته است.
+</div>
+
+## FarsiVOA — post 217911
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217911_1778952024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از وضعیت توفانی مجموعه تفریحی تله‌کابین توچال در شمال تهران در روز شنبه، ۲۶ اردیبهشت ۱۴۰۵
+</div>
+
+## DW_Farsi — post 124772
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124772_1778952026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 قوه قضاییه از توقیف اموال ۵۱ نفر در یزد خبر داد
+
+قوه قضاییه ایران اعلام کرد اموال ۵۱ نفر در استان یزد به اتهام "جاسوسی و همکاری با کشورهای متخاصم و گروه‌های معاند" توقیف شده است.
+
+به گزارش مرکز رسانه قوه قضاییه، این اموال شامل حساب‌های بانکی، اموال منقول و غیرمنقول، سهام شرکت‌ها و برخی اموال وکالتی است که با دستور قضایی توقیف شده‌اند.
+
+در این گزارش آمده ۲۰ نفر از این افراد در داخل ایران و ۳۱ نفر دیگر خارج از کشور هستند و رسیدگی به پرونده آن‌ها ادامه دارد.
+
+این نهاد هنوز نامی از این افراد منتشر نکرده و هیچ مدرک یا مستندی هم برای اثبات اتهامات مطرح‌شده ارائه نداده است.
+
+در هفته‌های اخیر و پس از حملات نظامی آمریکا و اسرائیل به ایران، گزارش‌هایی از افزایش بازداشت‌ها، اعدام‌ها و توقیف اموال در ایران منتشر شده است.
+
+سازمان‌های حقوق بشری نسبت به استفاده از اتهام‌هایی مانند جاسوسی و همکاری با کشورهای متخاصم برای تشدید فشار بر منتقدان و شهروندان هشدار داده‌اند.
+@dw_farsi
+</div>
+
+## DW_Farsi — post 124771
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124771_1778952027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 سپاه: انفجارهای صبح امروز در جم ناشی از "خنثی‌سازی مهمات" بود
+
+سپاه شهرستان جم اعلام کرد صداهای انفجاری که صبح شنبه ۲۶ اردیبهشت، در این شهر شنیده شد، به عملیات خنثی‌سازی "مهمات عمل‌نکرده" مربوط بوده است.
+
+به گزارش خبرگزاری مهر، در اطلاعیه سپاه آمده این عملیات به‌صورت کنترل‌شده در حال انجام است و نیروهای مربوطه در محل حضور دارند.
+
+پیش از این در روز جمعه، ۱۱ اردیبهشت، سپاه استان زنجان از کشته شدن ۱۴ نفر از نیروهای گردان تخریب سپاه انصارالمهدی در خلال خنثی‌سازی مهمات عمل‌نکرده از دوره جنگ اخیر خبر داده و گفته بود دو نفر نیز در اثر این انفجار مجروح شدند.
+
+سپاه زنجان در بیانیه خود ادعا کرده بود که در جریان بمباران‌های هوایی "جنگنده‌های متخاصم دشمن"، بمب‌های خوشه‌ای، بمبلت‌ها و مهمات مشابه، پرتاب شده بود و "بخش‌هایی از منطقه از جمله محدوده‌ای بیش از هزار و ۲۰۰ هکتار که اراضی کشاورزی را نیز شامل می‌شد، از طریق مین‌ریزی هوایی به‌صورت هدفمند در معرض تهدید قرار گرفت".
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14243
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14243_1778952027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم تشییع جنازه عزالدین الحداد، فرمانده نظامی حماس که دیشب کشته شد، در نوار غزه انجام شد.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14242
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14242_1778952028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅پست جدید ترامپ در تروث سوشال:
+بازی نداریم! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
+با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
+این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
+🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
+https://t.me/boost/persian_trend_official
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157265
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157265" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، ۲۶ اردیبهشت ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20253
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20253_1778952029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌سیم کارت سفید‌ها
+
+نزدیک به هشتاد روز است که حکومت ایران اینترنت را قطع کرده و تنها بسته ای محدود، کنترل شده و بسیار گران قیمت با عنوان «اینترنت پرو» را در اختیار گروههای خاص قرار میدهد. در کنار استفاده کنندگان اینترنت پرو، دارندگان «سیم کارتهای سفید» نیز از دسترسی ویژه برخوردارند.
+عمده بهره‌مندان از این امتیازها، وابستگان حکومت و حامیان آن هستند که با استفاده از این، امکان تصویری عادی بزک شده و گمراه کننده از وضعیت امروز ایران به جهان مخابره میکنند. تصویری که در آن نشانی از فقر گسترده، سرکوب سیستماتیک، گرانی کمرشکن و موج روزانه اعدامهای سیاسی دیده نمی‌شود.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20252
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20252_1778952029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎉 ۵۰۰٬۰۰۰ تومان رایگان-بونوس ویژه ثبت‌نام
+
+🔥 با هر ثبت نام ۵۰۰ هزار تومن جایزه بگیرید
+
+⬅️ شرط‌بندی کنید و بونوس را به موجودی واقعی تبدیل کنید
+
+🔥 وقتشه بازی رو یه جور دیگه ببینی
+⚽️  پوشش کامل مسابقات ورزشی 
+
+📊  پیش‌بینی با بهترین ضرایب 
+
+⚡️  تجربه سریع و حرفه‌ای
+
+
+😀 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+
+
+😀 کانال تلگرام: 
+
+🔴 @winro_io  
+
+
+😀 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+🔴 Winro.io
+G26
+سایت اصلی در روزهای آینده بازگشایی خواهد شد 
+✅
+</div>
+
+## BBCPersian — post 281229
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایرنا: وزیر کشور پاکستان در یک سفر از پیش اعلام نشده در تهران است خبرگزاری رسمی ایرنا گزارش داده است که وزیر کشور پاکستان «در یک سفر از پیش اعلام نشده» در تهران است. ایرنا از قول منابع خود خبر داده است که محسن نقوی ساعاتی پیش وارد تهران شده و قرار است با…
+</div>
+
+## BBCPersian — post 281228
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_281228_1778952030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ویدیوی منتشر شده از پیست اسکی توچال نشان می‌دهد طوفان شدیدی این منطقه را در می‌نوردد.
+
+سازمان هواشناسی ایران برای استان تهران ناپایداری شدید، صاعقه، تگرگ، سقوط سنگ و رانش زمین به ویژه در مناطق کوهستانی را پیش‌بینی کرده است.
+
+https://bbc.in/49FCHFl
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281227
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پس از تهدید اسرائیل به شکایت، نیویورک تایمز از روزنامه‌نگار خود دفاع کرد
+
+✍️رافی برگ، بی‌بی‌سی
+
+نیویورک تایمز گفته است که اقدام حقوقی علیه این روزنامه به اتهام افترا که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، تهدید به انجام آن کرده، بی‌اساس است.
+
+این نزاع بر سر مقاله‌ای در نیویورک تایمز است که در آن گفته شده است «سرویس‌های امنیتی اسرائیل به بازداشت‌شدگان فلسطینی تجاوز جنسی کرده‌اند.»
+
+این روزنامه پس از آن واکنش نشان داد که بنیامین نتانیاهو و وزیر امور خارجه‌اش بیانیه‌ای صادر کردند و گفتند که دستور «آغاز یک دعوی افترا» را داده‌اند.
+
+https://bbc.in/4nxcluV
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389566
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389566_1778952031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو مست کرده اومده تو تجمعات شبانه میرقصه و قر میده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389565
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389565_1778952033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلم «تهران کنارت» که بخاطر حجاب دو سال توقیف بود، الان آزاد و اکران شده؛
+
+تو تیزر رسمی فیلم، "سوگند" خواننده‌ی زنِ خارج‌نشین داره می‌خونه که حسابی جنجال به پا کرده...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389564
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389564_1778952034.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بادبان با همراهی شما 50 هزار نفری شد
+🎉
+
+
+🛡فروش سرویس جدید با کاهش قیمت تا گیگی 200 هزار تومان باز شد
+🛒
+
+
+🎊کد تخفیف 100 هزار تومانی بادبان فعال بوده و میتونید برای خرید اولتون ازش استفاده کنید
+
+BadBan4k : کد تخفیف
+
+
+🚀همچنین میتونید با معرفی بادبان از طریق لینک معرفی به دوستان 10 درصد از مبلغ تمام خرید هاشون رو در کیف پولتون داشته باشید
+G26
+وقتی بادبان داری، هیچ بادی مانع نیست… با ما راه بازه حتی وقتی اینترنت ملیه!
+
+
+⛵️@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389562
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در اقدامی کاملا عادی تو اپلیکیشن ترب، محصولاتی با عنوانِ موش بی دندون (همون دول موشیِ خودمون) در ابعاد و رنگ های مختلف موجود شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105531
+
+<div align="center">
+  <a href="telegram/content/manototv_105531_1778952035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشتوتگارت، تجمع در حمایت از مردم ایران، ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105530
+
+<div align="center">
+  <a href="telegram/content/manototv_105530_1778952036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مالمو سوئد، راهپیمایی ایرانیان، ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105529
+
+<div align="center">
+  <a href="telegram/content/manototv_105529_1778952038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلان | ایتالیا؛ گردهمایی ایرانیان ـ گزارشگر ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105528
+
+<div align="center">
+  <a href="telegram/content/manototv_105528_1778952039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوردو فرانسه، تجمع هفتگی همراه با تصویر جاویدنامان انقلاب ملی، شنبه ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105527
+
+<div align="center">
+  <a href="telegram/content/manototv_105527_1778952041.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوداپست | مجارستان؛ گردهمایی ایرانیان ـ گزارشگر ۲۶ اردیبهشت
+</div>
+
+## manototv — post 105526
+
+<div align="center">
+  <a href="telegram/content/manototv_105526_1778952042.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلن، راهپیمایی ایرانیان، شنبه ۲۶ اردیبهشت
+</div>
+
+## alonews — post 120444
+
+<div align="center">
+  <a href="telegram/content/alonews_120444_1778952044.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زمین‌لرزه ای به بزرگی ۴.۵ ریشتر دقایقی پیش گلوگاه در استان مازندران را لرزاند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120443
+
+<div align="center">
+  <a href="telegram/content/alonews_120443_1778952044.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ، رئیس‌جمهور آمریکا در گفت‌وگوی تلفنی با شبکه فرانسوی «بی‌اف‌ام‌تی‌وی» آینده مذاکرات با ایران را نامشخص توصیف کرد.
+
+
+🔴او هشدار داد که در صورت شکست مذاکرات، ایران با پیامدهای سنگینی روبه‌رو خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120442
+
+<div align="center">
+  <a href="telegram/content/alonews_120442_1778952044.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار سی‌ان‌ان، کیتلان کالینز، می‌گوید: «ترامپ ظاهراً نمی‌خوابد.
+
+
+🔴«یک منبع یک بار به من گفت هیچوقت کسی دوست ندارد در یک سفر طولانی مثلاً به آسیا در هواپیمای رئیس جمهور باشد… ترامپ همیشه بیدار است و حرف می‌زند، و اگر کارکنانش خواب باشند، می‌فرستد بیدارشان کنند چون می‌خواهد با آنها صحبت کند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120441
+
+<div align="center">
+  <a href="telegram/content/alonews_120441_1778952044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ارتش دفاعی اسرائیل اعلام کرده است که در طول آخر هفته حملاتی به حدود ۱۰۰ هدف حزب‌الله در جنوب لبنان انجام داده است.
+
+
+🔴 این اهداف شامل موقعیت‌های نظارتی، محل‌های ذخیره سلاح و سایر زیرساخت‌هایی بود که ادعا می‌شود توسط حزب‌الله استفاده می‌شوند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120440
+
+<div align="center">
+  <a href="telegram/content/alonews_120440_1778952046.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز بمب افکن B-52 تو پایگاه هوایی فِرفورد تمرین‌‌های خودشو انجام داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120439
+
+<div align="center">
+  <a href="telegram/content/alonews_120439_1778952047.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاریو: ترامپ در آستانه چراغ سبز به اسرائیل برای ازسرگیری حملات است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120438
+
+<div align="center">
+  <a href="telegram/content/alonews_120438_1778952047.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کاخ سفید : همه گزینه ها در مورد ایران تو اختیار ترامپه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120437
+
+<div align="center">
+  <a href="telegram/content/alonews_120437_1778952048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای سی‌ان‌ان، به نقل از منابع آگاه:
+در دولت ترامپ نظرات متفاوتی در مورد چگونگی برخورد با ایران وجود دارد.
+
+
+🔴دولت ترامپ و مقامات پنتاگون بر حملات هدفمند اصرار دارند، در حالی که دیگران از دیپلماسی حمایت می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120436
+
+<div align="center">
+  <a href="telegram/content/alonews_120436_1778952048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت جنوب لبنان دقایقی قبل ، پس از حملات اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120435
+
+<div align="center">
+  <a href="telegram/content/alonews_120435_1778952049.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نماینده دائم روسیه در سازمان‌های بین‌المللی مستقر در وین، موضع چین در قبال قطعنامه ضدایرانی بحرین و آمریکا در ارتباط با تنگه هرمز را تایید کرد و گفت «روسیه هم همین دیدگاه را دارد»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 19:43
 ---
 
