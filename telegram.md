@@ -7,6 +7,1223 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 00:27
+---
+
+## VahidOOnLine — post 241808
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241808_1779569860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در بخشی از پیام روز جمعه خود در شبکه اجتماعی «تروث سوشال» مبنی بر نزدیک شدن به توافق با ایران، به رایزنی‌های دیپلماتیک با اسرائیل اشاره کرد و نوشت: «به طور جداگانه، تماسی با بنیامین نتانیاهو، نخست‌وزیر اسرائیل داشتم که آن هم بسیار خوب پیش رفت.» او با تاکید بر اینکه جنبه‌ها و جزئیات نهایی توافق با ایران در حال حاضر در دست بحث است و به‌زودی اعلام خواهد شد، شرایط گفتگو با نخست‌وزیر اسرائیل را مثبت ارزیابی کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241807
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241807_1779569860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده در شبکه تروث سوشال نوشت: «یک توافق میان ایالات متحده آمریکا، جمهوری اسلامی تنظیم شده و اکنون در انتظار نهایی شدن است. جنبه‌ها و جزییات نهایی توافق در دست بررسی است و به‌زودی اعلام خواهد شد.»
+
+دونالد ترامپ افزود: «علاوه بر بسیاری از بندهای دیگر توافق، تنگه هرمز نیز بازگشایی خواهد شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241806
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241806_1779569861.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از سن‌فرانسیسکو:
+«می‌گفت با شنیدن صدای شما احساس می‌کنم تو ایرانم…
+و از سال‌هایی گفت که با برنامه‌های منوتو خندیده، گریه کرده و زندگی کرده بود.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241805
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241805_1779569862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در دیدار با جاش گاتهایمر، عضو حزب دموکرات در مجلس نمایندگان آمریکا، بر اهمیت حمایت دوحزبی کنگره ایالات متحده از مردم ایران تاکید کرد و گفت: ایرانیان نه‌تنها برای آزادی خود، بلکه برای پایان دادن به تروریسم جمهوری اسلامی علیه جهان مبارزه می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241804
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241804_1779569863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «وای‌نت»، مقامات اورشلیم به شدت نگران آن هستند که هرگونه توافق یا تفاهم موقت واشنگتن با تهران، جنگ را بدون دستاورد پایدار متوقف کند. این نگرانی وجود دارد که چنین توافقی بدون برچیدن زیرساخت‌های هسته‌ای جمهوری اسلامی، محدود کردن برنامه‌های موشک‌های بالستیک و پهپادی این کشور، و همچنین بدون مهار فعالیت گروه‌های نیابتی تهران در منطقه، به‌ویژه حزب‌الله در لبنان و حوثی‌ها در یمن، حاصل شود و عملا تهدیدهای اصلی را پابرجا باقی بگذارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241803
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241803_1779569863.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد که ترامپ در روز شنبه به طور غیرمنتظره‌ای جی‌دی ونس، دن کین، رییس ستاد مشترک ارتش، پیت هگست، وزیر جنگ و کل شورای امنیت ملی را به اتاق وضعیت کاخ سفید فراخواند.
+
+پیش‌تر ترامپ با رهبران کشورهای منطقه درباره مذاکرات با جمهوری اسلامی گفت‌وگو کرده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241802
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241802_1779569864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان مونترآل، دوم خرداد ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241801
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241801_1779569866.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد سرافراز، عضو شورای عالی فضای مجازی، گفت: «تجهیزات مربوط به قطع دائمی اینترنت از چین خریداری و وارد شده است.» او افزود: «اپراتورهای عضو شورای عالی فضای مجازی در پشت‌پرده تصویب طرح اینترنت پرو نقش دارند و ذی‌نفعان قطع اینترنت در بازار فروش فیلترشکن و اینترنت ویژه فعال هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴🔴🔴
+
+من در دفتر بیضی شکل کاخ سفید هستم، جایی که همین حالا یک تماس تلفنی بسیار خوب با این مقامات داشتیم: رئیس‌جمهور محمد بن سلمان آل سعود از عربستان سعودی، محمد بن زاید آل نهیان از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی، و وزیر علی الثوادی از قطر، فیلد مارشال سید عاصم منیر احمد شاه از پاکستان، رئیس‌جمهور رجب طیب اردوغان از ترکیه، رئیس‌جمهور عبدالفتاح السیسی از مصر، ملک عبدالله دوم از اردن، و ملک حمد بن عیسی آل خلیفه از بحرین؛ درباره جمهوری اسلامی ایران و تمامی موارد مربوط به یک یادداشت تفاهم پیرامون صلح.
+توافقی تا حد زیادی مذاکره و تدوین شده است که منوط به نهایی‌سازی بین ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلف دیگری است که نام آن‌ها ذکر شد. به طور جداگانه، تماسی نیز با نخست‌وزیر بی‌بی نتانیاهو از اسرائیل داشتم که آن هم به همین ترتیب بسیار خوب پیش رفت. جنبه‌ها و جزئیات نهایی این توافق در حال حاضر در حال بحث و بررسی است و به زودی اعلام خواهد شد. علاوه بر بسیاری از عناصر دیگر این توافق، تنگه هرمز باز خواهد شد. از توجه شما به این موضوع سپاسگزارم!
+
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارهایی بخش شمالی پایتخت بغداد را لرزاند.
+</div>
+
+## mwarmonitor — post 9585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارهایی بخش شمالی پایتخت بغداد را لرزاند.
+</div>
+
+## mwarmonitor — post 9584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انفجارهای استان اربیل در شمال عراق را لرزاند.
+</div>
+
+## mwarmonitor — post 9582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مقامات ارشد نهاد امنیتی اسرائیل معتقدند که رهبری ایران در حال گمراه کردن تیم مذاکره‌کننده ایالات متحده است - هاآرتص
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک منبع منطقه‌ای گفت تمام رهبران عرب و مسلمان که روز شنبه در تماس با ترامپ بودند، از او خواستند توافق را پیش ببرد تا جنگ پایان یابد و تنش در منطقه کاهش پیدا کند. 🚨 این منبع گفت: «پیام همه این بود که لطفاً جنگ را به خاطر منافع کل منطقه متوقف کنید.» 🚨 به…
+</div>
+
+## mwarmonitor — post 9580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک منبع منطقه‌ای گفت تمام رهبران عرب و مسلمان که روز شنبه در تماس با ترامپ بودند، از او خواستند توافق را پیش ببرد تا جنگ پایان یابد و تنش در منطقه کاهش پیدا کند.
+
+🚨 این منبع گفت: «پیام همه این بود که لطفاً جنگ را به خاطر منافع کل منطقه متوقف کنید.»
+
+🚨 به گفته این منبع منطقه‌ای، مذاکرات به‌خوبی در حال پیشرفت است و میانجی‌ها امیدوارند فردا چارچوب یک‌صفحه‌ای توافق را نهایی کرده و آن را اعلام کنند.
+
+🚨 سپس میانجی‌ها قصد دارند چند روز بعد مذاکرات برای یک توافق تفصیلی و جزئی را آغاز کنند، این منبع منطقه‌ای گفت. باراک راوید
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91335
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91335_1779569866.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تتر بعد از خبر توافق احتمالی بین آمریکا و جمهوری اسلامی تا 170 هزار تومن ریزش کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91334
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91334_1779569867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: پیام همه رهبرانی که در تماس با ترامپ شرکت داشتن این بود که توقف جنگ به نفع منطقه است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یهو دیدی نتانیاهو با ذکر "کیرم تو جام جهانی" خودش حمله رو شروع کرد😂
+</div>
+
+## pm_afshaa — post 91332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توافق بر سر پایان جنگ و باز شدن تنگه هرمز هست، بعدشم ۳۰ یا ۶۰ روز وارد مذاکرات درباره مسائل دیگه (هسته‌ای و غنی سازی) میشن.
+</div>
+
+## pm_afshaa — post 91331
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91331_1779569867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در تروث سوشال: من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که همین حالا گفت‌وگوی بسیار خوبی با محمد بن سلمان آل سعود، عربستان سعودی؛ محمد بن زاید آل نهیان، امارات متحده عربی؛ امیر تمیم بن حمد آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم آل ثانی و وزیر…
+</div>
+
+## pm_afshaa — post 91330
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91330_1779569868.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ در تروث سوشال:
+
+من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که همین حالا گفت‌وگوی بسیار خوبی با محمد بن سلمان آل سعود، عربستان سعودی؛ محمد بن زاید آل نهیان، امارات متحده عربی؛ امیر تمیم بن حمد آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم آل ثانی و وزیر علی الثوادی از قطر؛ فیلدمارشال سید عاصم منیر احمد شاه از پاکستان؛ رجب طیب اردوغان، رئیس‌جمهور ترکیه؛ عبدالفتاح السیسی، رئیس‌جمهور مصر؛ ملک عبدالله دوم، پادشاه اردن؛ و حمد بن عیسی آل خلیفه، پادشاه بحرین، دربارهٔ جمهوری اسلامی ایران و همهٔ مسائل مرتبط با یک یادداشت تفاهم مربوط به صلح داشتیم.
+
+یک توافق تا حد زیادی مذاکره و تنظیم شده است، اما نهایی شدن آن میان ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلفی که نام برده شد، همچنان منوط به تکمیل جزئیات است.
+
+به‌طور جداگانه، با نخست‌وزیر اسرائیل، بی‌بی نتانیاهو، نیز گفت‌وگو کردم که آن هم بسیار خوب پیش رفت.
+
+جنبه‌ها و جزئیات نهایی توافق در حال حاضر در دست بررسی است و به‌زودی اعلام خواهد شد.
+
+علاوه بر بسیاری از بخش‌های دیگر این توافق، تنگهٔ هرمز نیز بازگشایی خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91329
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91329_1779569868.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: یادداشت تفاهم با ایران تا حد زیادی مورد مذاکره قرار گرفته و در حال نهایی شدن است و به‌زودی اعلام خواهد شد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#مهم
+عزیزای دلم همگی الان چنل زاپاس‌مون رو جوین بشید کانال تحت ریپورت شدیده اگه چیزی شد زاپاس رو داشته باشید فعالیت میاد اونور
+👇
+
+https://t.me/Pm_Zapas
+https://t.me/Pm_Zapas
+</div>
+
+## pm_afshaa — post 91327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان به نقل از یک منبع اسرائیلی گزارش داد: نتانیاهو در تمام طول شب شنبه با مقامات آمریکایی در تماس بوده و انتظار می‌رود به زودی با ترامپ نیز صحبت کند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91326
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91326_1779569869.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: گفتگوی ترامپ با رهبران کشورهای عربی «بسیار مثبت» بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91325
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91325_1779569869.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه i24NEWS: اسرائیل خودش رو برای سناریویی آماده میکنه که در آن باید به تنهایی با تهدید موشکی ایران مقابله کنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91324
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91324_1779569870.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه i24NEWS: اسرائیل خودش رو برای سناریویی آماده میکنه که در آن باید به تنهایی با تهدید موشکی ایران مقابله کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91323
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91323_1779569870.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام: اگه با ایران توافق کنیم فقط بخاطر اینه که چون فهمیدیم نمی‌تونیم تنگه هرمز رو از دست ایران حفظ کنیم و ایران هنوز هم میتونه زیرساخت‌های نفتی خلیج فارس رو نابود کنه؛ یعنی اون‌وقت ایران به‌عنوان قدرت غالب منطقه شناخته میشه و همه مجبور میشن…
+</div>
+
+## pm_afshaa — post 91322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سری قبلی هم‌ گفتم بازم میگم
+هر وقت خبر توافق بالا گرفت بیشتر به جنگ امیدوار باش..
+
+توافق نهایی شدنی نیست نهایت همین آتش‌بس ۶۰ روزه رو اعلام میکنن که جنگ بره واسه بعد جام جهانی
+
+همه میدونیم جمهوری اسلامی تسلیم بشو نیست و ترامپ هم ول کن نیست و پیروزی قاطع میخواد.
+
+فقط موضوع اینه که قبل جام جهانی یا بعدش..
+</div>
+
+## VahidOnline — post 75660
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75660_1779569871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ ترامپ: یک توافق تنظیم شده و اکنون در انتظار نهایی شدن است
+
+پست ترامپ، ترجمه ماشین:
+من در دفتر بیضیِ کاخ سفید هستم؛ جایی که همین حالا تماس بسیار خوبی با
+▪️پرزیدنت محمد بن سلمان آل سعود از عربستان سعودی،
+▪️محمد بن زاید آل نهیان از امارات متحده عربی،
+▪️امیر تمیم بن حمد بن خلیفه آل ثانی،
+نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جبر آل ثانی و وزیر علی الثوادی از قطر،
+▪️فیلد مارشال سید عاصم منیر احمد شاه از پاکستان،
+▪️رجب طیب اردوغان رئیس‌جمهور ترکیه،
+▪️عبدالفتاح السیسی رئیس‌جمهور مصر،
+▪️عبدالله دوم پادشاه اردن،
+▪️و حمد بن عیسی آل خلیفه پادشاه بحرین،
+
+درباره جمهوری اسلامی ایران و همه مسائل مربوط به یادداشت تفاهمی در ارتباط با صلح داشتیم.
+
+یک توافق تا حد زیادی مذاکره شده و نهایی شدن آن منوط به جمع‌بندی میان ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلف دیگری است که نامشان ذکر شد.
+
+▪️جداگانه، با نخست‌وزیر بی‌بی نتانیاهو از اسرائیل نیز تماسی داشتم که آن هم بسیار خوب پیش رفت.
+
+جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال بررسی است و به‌زودی اعلام خواهد شد. علاوه بر بسیاری دیگر از عناصر این توافق، تنگه هرمز باز خواهد شد.
+
+از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87617
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87617_1779569871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واکنش ولی نصر، مشاور سابق اوباما به پست ترامپ:
+
+اول اعلام کرد که می‌خواهد تمدن ایران را نابود کند، حالا اعلام می‌کند که می‌خواهد ایران را به ملک آمریکا تبدیل کند
+
+این نوع رفتار زننده، دیپلماسی را تضعیف می‌کند و ایرانیان را در دفاع از کشورشان متحد می‌سازد.
+
+در میانه دیپلماسی، او نسبت به نیات واقعی آمریکا تردید ایجاد می‌کند.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338660
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338660_1779569872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده در شبکه تروث سوشال نوشت: «یک توافق میان ایالات متحده آمریکا، جمهوری اسلامی تنظیم شده و اکنون در انتظار نهایی شدن است. جنبه‌ها و جزییات نهایی توافق در دست بررسی است و به‌زودی اعلام خواهد شد.»
+
+دونالد ترامپ افزود: «علاوه بر بسیاری از بندهای دیگر توافق، تنگه هرمز نیز بازگشایی خواهد شد.»
+https://iranintl.com/202605230612
+</div>
+
+## IranIntlTV — post 338659
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338659_1779569872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در دیدار با جاش گاتهایمر، عضو حزب دموکرات در مجلس نمایندگان آمریکا، بر اهمیت حمایت دوحزبی کنگره ایالات متحده از مردم ایران تاکید کرد و گفت: ایرانیان نه‌تنها برای آزادی خود، بلکه برای پایان دادن به تروریسم جمهوری اسلامی علیه جهان مبارزه می‌کنند.
+https://iranintl.com/202605235303
+</div>
+
+## IranIntlTV — post 338658
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338658_1779569873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد که ترامپ در روز شنبه به طور غیرمنتظره‌ای جی‌دی ونس، دن کین، رییس ستاد مشترک ارتش، پیت هگست، وزیر جنگ و کل شورای امنیت ملی را به اتاق وضعیت کاخ سفید فراخواند.
+
+پیش‌تر ترامپ با رهبران کشورهای منطقه درباره مذاکرات با جمهوری اسلامی گفت‌وگو کرده بود.
+https://iranintl.com/202605233431
+</div>
+
+## IranIntlTV — post 338657
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338657_1779569873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد سرافراز، عضو شورای عالی فضای مجازی، گفت: «تجهیزات مربوط به قطع دائمی اینترنت از چین خریداری و وارد شده است.» او افزود: «اپراتورهای عضو شورای عالی فضای مجازی در پشت‌پرده تصویب طرح اینترنت پرو نقش دارند و ذی‌نفعان قطع اینترنت در بازار فروش فیلترشکن و اینترنت ویژه فعال هستند.»
+https://iranintl.com/202605235937
+</div>
+
+## Shin_Persian — post 6180
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6180_1779569874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Steven Cheung ✓ @StevenCheung47 Sat, 23 May 2026 20:16:47 UTC It’s 4:00 PM on a Saturday, and President Trump has been working hard at the White House since early this morning. This man is focused and determined. ↩️ توییت نقل‌قول شده —…
+</div>
+
+## Shin_Persian — post 6179
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Steven Cheung ✓ @StevenCheung47
+Sat, 23 May 2026 20:16:47 UTC
+
+It’s 4:00 PM on a Saturday, and President Trump has been working hard at the White House since early this morning. This man is focused and determined.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ساعت ۴:۰۰ بعد از ظهر شنبه است و پرزیدنت ترامپ از اوایل امروز صبح در کاخ سفید به سختی مشغول کار بوده است. این مرد متمرکز و بااراده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6178
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6178_1779569874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Sat, 23 May 2026 20:35:28 UTC President Trump @POTUS: "I am in the Oval Office at the White House where we just had a very good call with President Mohammed bin Salman Al Saud, of Saudi Arabia, Mohammed bin Zayed Al Nahyan, of The United…
+</div>
+
+## Shin_Persian — post 6177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 23 May 2026 20:35:28 UTC
+
+President Trump @POTUS:
+"I am in the Oval Office at the White House where we just had a very good call with President Mohammed bin Salman Al Saud, of Saudi Arabia, Mohammed bin Zayed Al Nahyan, of The United Arab Emirates, Emir Tamim bin Hamad bin Khalifa Al Thani, Prime Minister Mohammed bin Abdulrahman bin Jassim bin Jaber Al Thani, and Minister Ali al-Thawadi, of Qatar, Field Marshal Syed Asim Munir Ahmed Shah, of Pakistan, President Recep Tayyip Erdoğan, of Türkiye, President Abdel Fattah El-Sisi, of Egypt, King Abdullah II, of Jordan, and King Hamad bin Isa Al Khalifa, of Bahrain, concerning the Islamic Republic of Iran, and all things related to a Memorandum of Understanding pertaining to PEACE. An Agreement has been largely negotiated, subject to finalization between the United States of America, the Islamic Republic of Iran, and the various other Countries, as listed. Separately, I had a call with Prime Minister Bibi Netanyahu, of Israel, which, likewise, went very well. Final aspects and details of the Deal are currently being discussed, and will be announced shortly. In addition to many other elements of the Agreement, the Strait of Hormuz will be opened. Thank you for your attention to this matter! President DONALD J. TRUMP"
+
+فارسی
+
+رئیس‌جمهور ترامپ @POTUS:
+«من در دفتر بیضی در کاخ سفید هستم، جایی که دقایقی پیش تماس بسیار خوبی با پرنس محمد بن سلمان آل سعود از عربستان سعودی، محمد بن زاید آل نهیان از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، ارتشبد سید عاصم منیر احمد شاه از پاکستان، رئیس‌جمهور رجب طیب اردوغان از ترکیه، رئیس‌جمهور عبدالفتاح السیسی از مصر، ملک عبدالله دوم از اردن، و ملک حمد بن عیسی آل خلیفه از بحرین، در خصوص جمهوری اسلامی ایران و تمامی موارد مرتبط با یک یادداشت تفاهم مربوط به صلح داشتم. توافق‌نامه‌ای تا حد زیادی مذاکره شده است که منوط به نهایی شدن بین ایالات متحده آمریکا، جمهوری اسلامی ایران و سایر کشورهای مختلفِ فهرست شده می‌باشد. به‌طور جداگانه، تماسی با نخست‌وزیر بیبی نتانیاهو از اسرائیل داشتم که آن هم به همان ترتیب بسیار خوب پیش رفت. جنبه‌ها و جزئیات نهایی این توافق در حال حاضر در حال بحث است و به‌زودی اعلام خواهد شد. علاوه بر بسیاری از عناصر دیگرِ این توافق‌نامه، تنگه هرمز باز خواهد شد. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6176
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6176_1779569875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Sat, 23 May 2026 20:31:12 UTC
+
+Tanker In-Flight Emergency #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+KC-135R "BAYOU99" 61-0324 #AE0263 is squawking 7600 over southern Israel/Jordan border area
+
+@MATA_osint
+
+فارسی
+
+وضعیت اضطراری تانکر در حین پرواز #FreeIran
+--- عملیات خشم حماسی / پروژه آزادی ---
+
+هواپیمای KC-135R با نام فراخوان "BAYOU99" به شماره سریال 0324-61 و کد رهگیری #AE0263 در حال ارسال سیگنال وضعیت اضطراری ۷۶۰۰ (قطع ارتباط رادیویی) برفراز منطقه مرزی جنوب اسرائیل/اردن است.
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 23 May 2026 20:31:36 UTC
+
+Blasts in north of Baghdad and Erbil (KRI) at the same time!
+#Iraq 🇮🇶
+
+فارسی
+
+انفجارها در شمال بغداد و اربیل (اقلیم کردستان عراق) به طور همزمان!
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 23 May 2026 20:30:07 UTC
+
+Explosions from rockets in Tarmiyah, north of Baghdad, #Iraq 🇮🇶
+
+فارسی
+
+انفجارهای ناشی از اصابت راکت در طارمیه، شمال بغداد، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Lindsey Graham ✓ @LindseyGrahamSC
+Sat, 23 May 2026 19:43:10 UTC
+
+If it is perceived in the region that a deal with Iran allows the regime to survive and become more powerful over time, we will have poured gasoline on the conflicts in Lebanon and Iraq.
+
+A deal that is perceived to allow Iran to survive and possess the ability to control the Strait in the future will put Hezbollah in Lebanon and the Shia militias in Iraq on steroids.
+
+فارسی
+
+اگر در منطقه این‌گونه برداشت شود که توافق با ایران به این رژیم اجازه می‌دهد بقای خود را حفظ کرده و به مرور زمان قدرتمندتر شود، در واقع بر آتش درگیری‌ها در لبنان و عراق بنزین ریخته‌ایم.
+
+توافقی که تصور شود به ایران اجازه بقا و داشتن توانایی کنترل تنگه [هرمز] در آینده را می‌دهد، حزب‌الله در لبنان و شبه‌نظامیان شیعه در عراق را به شدت تقویت خواهد کرد.
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105784
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105784_1779569875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از سن‌فرانسیسکو:
+«می‌گفت با شنیدن صدای شما احساس می‌کنم تو ایرانم…
+و از سال‌هایی گفت که با برنامه‌های منوتو خندیده، گریه کرده و زندگی کرده بود.»
+</div>
+
+## ManotoTV — post 105783
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105783_1779569877.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان مونترآل، دوم خرداد ۱۴۰۵
+</div>
+
+## FarsiVOA — post 218476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ می‌گوید جزئیات یک «یادداشت تفاهم صلح» با جمهوری اسلامی به زودی اعلام می‌شود
+
+▪️دونالد ترامپ، رئيس‌جمهوری آمریکا، شنبه‌ عصر ۲ خرداد گفت با شماری از رهبران منطقه از جمله مقامات عربستان، قطر، و امارات درباره یک یادداشت تفاهم مربوط به صلح با جمهوری اسلامی ایران صحبت کرده است. او افزود: در مورد این توافق «تا حد زیادی مذاکره» شده و این توافق «تنظیم شده است که پس از نهایی شدن، میان ایالات متحده آمریکا، جمهوری اسلامی ایران، و کشورهای مختلفی که نام برده شدند، به امضا خواهد رسید.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8153084.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218475
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218475_1779569878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش‌های قانون‌گذاران آمریکا به قطعنامه دموکرات‌ها برای محدود کردن اختیارات جنگی رئیس‌جمهوری
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺احکام سنگین زندان برای دو زن جوان در سمنان به اتهام «ارسال ویدیو» به شبکه‌های تلویزیونی
+
+▪️کانون حقوق بشر ایران، شنبه ۲ خرداد‌ از صدور حکم مجموعاً ۵۳ سال زندان برای لیلا رمضانی و فاطمه ملک‌احمدی توسط مقام‌های قضایی استان سمنان خبر داد. اتهام این دو زن ارسال ویدیو به شبکه‌های تلویزیونی و «اتباط با شبکه‌های تلویزیونی مخالف حکومت و ارسال محتوا و اطلاعات» برای این رسانه‌ها گزارش شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-accusation-prison-dissent-/8153077.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری‌خواهان مجلس نمایندگان: تلاش گزارش‌شده برای ترور ایوانکا ترامپ «چهره واقعی» جمهوری اسلامی را نشان می‌دهد
+
+▪️جمهوری‌خواهان مجلس نمایندگان آمریکا روز شنبه ۲ خرداد با انتشار بیانیه‌ای، به گزارش‌های منتشر شده درباره توطئه یک تبعه عراقی آموزش دیده سپاه برای ترور ایوانکا ترامپ، دختر رئیس جمهوری آمریکا، واکنش نشان دادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-iavanka-trump-assassination-irgc-terror-ghasem-soleimani-/8153076.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14776
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14776_1779569879.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه ما ایرانی ها یا فکر میکنم توافق شده و بدبخت شدیم یا تو صف پمپ بنزینیم !
+هیییچ حد وسطی نداریم ...
+</div>
+
+## Persian_Trend_Official — post 14775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که دقایقی پیش گفت‌وگوی بسیار خوبی با ولیعهد عربستان سعودی، ، رئیس امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید…
+</div>
+
+## Persian_Trend_Official — post 14774
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14774_1779569879.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد تا حس پیروزی بهشون دست نده از سوراخ بیرون نمیان 😄
+</div>
+
+## Persian_Trend_Official — post 14773
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14773_1779569880.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که دقایقی پیش گفت‌وگوی بسیار خوبی با ولیعهد عربستان سعودی، ، رئیس امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید عاصم منیر احمد شاه از پاکستان، رئیس‌جمهور رجب طیب اردوغان از ترکیه، رئیس‌جمهور عبدالفتاح السیسی از مصر، ملک عبدالله دوم از اردن و ملک حمد بن عیسی آل خلیفه از بحرین داشتیم؛ گفت‌وگویی درباره جمهوری اسلامی ایران و تمام مسائل مرتبط با یک یادداشت تفاهم در خصوص صلح.
+یک توافق تا حد زیادی میان ایالات متحده آمریکا، جمهوری اسلامی ایران و دیگر کشورهای ذکرشده مذاکره و تنظیم شده و اکنون تنها نهایی‌سازی آن باقی مانده است.
+به‌صورت جداگانه، گفت‌وگویی نیز با نخست‌وزیر اسرائیل، بی بی نتانیاهو، داشتم که آن هم بسیار خوب پیش رفت.
+در حال حاضر، جنبه‌ها و جزئیات نهایی توافق در حال بررسی است و به‌زودی اعلام خواهد شد.
+علاوه بر بسیاری از بندهای دیگر این توافق، تنگه هرمز نیز بازگشایی خواهد شد.
+از توجه شما به این موضوع سپاسگزارم!
+</div>
+
+## Persian_Trend_Official — post 14772
+
+
+
+
+## Persian_Trend_Official — post 14771
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14771_1779569881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️جهت مرور وقایع گذشته ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هیچ چیزی از رسانه خودم پاک نمیکنم
+زمانی که باور کردی جنگ نمیشه اتفاقا بهترین فرصته جنگ بشه
+بمونه به یادگار
+</div>
+
+## Persian_Trend_Official — post 14769
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14769_1779569882.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا نتانیاهو هست محور مقاومت عمو ندارد !
+</div>
+
+## Persian_Trend_Official — post 14768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه شواهد نشون میده برخلاف وانمود رسانه ها جنگ بسیار به ما نزدیکه
+</div>
+
+## Persian_Trend_Official — post 14767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت صفر نزدیک است
+</div>
+
+## Persian_Trend_Official — post 14766
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14766_1779569882.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستش امشب اصلا حال جسمی خوبی ندارم اما این رو بهتون بگم بهم اعتماد داشته باشید به نظر من دور بعدی جنگ در راهه این خبر هایی که در مورد توافق گفته میشه احمقانست توافقی وجود نداره همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی…
+</div>
+
+## IranianMinds — post 20642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ریزش تتر بعد از خبر توافق احتمالی بین آمریکا و جمهوری اسلامی
+
+171 هزارتومان
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس: پیام همه رهبرانی که در تماس با ترامپ شرکت داشتن این بود که توقف جنگ به نفع منطقه است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20640
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20640_1779569883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+من در دفتر بیضی شکل کاخ سفید هستم جایی که ما به تازگی تماس بسیار خوبی با رئیس‌جمهور محمد بن سلمان آل سعود از عربستان سعودی، محمد بن زاید آل نهیان از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید عاصم منیر احمد شاه از پاکستان، رئیس‌جمهور رجب طیب اردوغان از ترکیه، رئیس‌جمهور عبدالفتاح السیسی از مصر، پادشاه عبدالله دوم از اردن و پادشاه حمد بن عیسی آل خلیفه از بحرین، درباره جمهوری اسلامی ایران و همه موارد مربوط به یادداشت تفاهم مربوط به صلح داشتیم. توافقنامه‌ای تا حد زیادی مذاکره شده است که منوط به نهایی شدن بین ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلف دیگر ذکر شده است. به طور جداگانه، من تماسی با نخست‌وزیر بیبی نتانیاهو از اسرائیل داشتم که به همان صورت بسیار خوب پیش رفت. جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال بحث است و به زودی اعلام خواهد شد. علاوه بر بسیاری از عناصر دیگر توافق، تنگه هرمز باز خواهد شد. از توجه شما به این موضوع سپاسگزارم!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ستاد کل نیروهای مسلح جمهوری اسلامی:
+
+مسلمانان جهان طعم شیرین نجات از شر آمریکا و اسرائیل رو خواهند چشید و به فتوحات بیشتری نائل خواهند شد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20638
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20638_1779569883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توییت اتاق جنگ اسرائیل:
+
+دوباره ساعت شنی ، رو به اتمام است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20637
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس شب : تموم شد مذاکرات قطعیه بزودی نهایی میشه تبریک !
+
+آکسیوس روز : ترامپ داره طرح‌ حمله ی جدیدی رو‌ به ایران میچینه و احتمالا بزودی جنگ دوباره شروع میشه .
+
+این چرخه همینطور ادامه داره …
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281904
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281904_1779569883.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رضا امیری‌مقدم، سفیر ایران در پاکستان، در شبکه اجتماعی ایکس نوشت که محسن نقوی، وزیر کشور پاکستان، پس از بازگشت از تهران، «موفقیت مذاکرات با مقام‌های ایران» را به او تبریک گفته است.
+
+او افزود که با «خوش‌بینی محتاطانه» می‌توان امیدوار بود که در صورت «پایبندی طرف مقابل»، گامی مثبت در مسیر توافق در حال شکل‌گیری باشد.
+
+گامی که به گفته آقای امیری‌مقدم، حاصل «مواضع جمهوری اسلامی ایران» و نیز ابتکار و تلاش‌های فداکارانه میانجی پاکستانی است.
+
+او همچنین ابراز امیدواری کرد که تلاش‌های مقام‌های پاکستان به عنوان میانجی مذاکرات میان ایران و آمریکا به صلحی پایدار در منطقه منجر شود.
+
+پیشتر سخنگوی وزارت خارجه ایران، درباره نتایج تازه‌ترین میانجیگری‌های پاکستان گفت که «ما در مرحله نهایی‌سازی یادداشت تفاهم هستیم.»
+
+مارکو روبیو، وزیر خارجه آمریکا هم در این باره گفت که دیپلماسی در حال پیشرفت است و ممکن است امروز یا ظرف چند روز آینده خبری منتشر شود هرچند که نمی‌توان مطمئن بود.
+
+📸 ایرنا
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## BBCPersian — post 281903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تماس‌های تلفنی متعدد رهبران منطقه با یکدیگر در جریان است
+
+گزارش‌های رسمی حاکی از آن است که تماسهای متعدد تلفنی بین رهبران کشورهای منطقه امروز در جریان بوده است.
+
+از جمله تماس‌ها، گفت‌وگوهای تلفنی عباس عراقچی با وزرای خارجه عربستان سعودی، مصر و قطر بوده است.
+
+رسانه های عربی هم گزارش داده‌اند که وزیر خارجه مصر با استیو ویتکاف، فرستاده ویژه رئیس‌جمهور آمریکا، درباره ایران تلفنی صحبت کرده است.
+
+پیشتر گزارش دادیم که خبرگزاری رویترز گزارش داد که دونالد ترامپ امروز با رهبران کشورهای منطقه از جمله مصر، ترکیه، پاکستان، عربستان، امارات و قطر تلفنی مذاکره خواهد کرد.
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## BBCPersian — post 281902
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281902" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻پادکست برنامه شصت دقیقه روز شنبه ۲ خرداد ۱۴۰۵ است
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+با هشتگ BBCPersianRadio# با ما در ارتباط باشید.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مثلث قوه قضاییه، وکلای امنیتی و خبرگزاری میزان؛ چرا اعدام‌ها با «شدت و سرعت» اجرا می‌شود؟
+
+🖌مسعود آذر, بی‌بی‌سی
+
+قوه قضاییه ایران، ۳۱ اردیبهشت ۱۴۰۵ دو نفر را به اتهام «عضویت در گروه‌های تجزیه‌طلب» محکوم و اعدام کرد. خبرگزاری میزان جزئیاتی از زمان بازداشت رامین زله و کریم معروف‌پور ارائه نداد و در باره مراحل دادرسی و محاکمه آنها توضیحی کلی منتشر کرد.
+
+https://bbc.in/4uovMJ3
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390039
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390039_1779569884.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتی در برهوت میهن‌پرستی، همیشه کسانی بوده‌اند که بدون سهم‌خواهی و منت، برای میهن جانفشانی کرده‌اند تا #ایران همچنان پابرجا بماند.
+ما به آنها مدیونیم….
+
+امیرحسین‌خان شجاع‌الدوله
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390038
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390038_1779569885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: الان تو دفتر بیضی کاخ سفید هستم و دقایقی پیش با رهبرای عربستان، امارات، قطر، پاکستان، ترکیه، مصر، اردن و بحرین درباره ایران و توافق صلح صحبت کردم؛
+
+توافق تقریبا تنظیم شده و فقط مونده یه‌سری جزئیات نهایی بین آمریکا، ایران و بقیه کشورا جمع‌بندی بشه، با نتانیاهو هم حرف زدم، اونم خوب پیش رفت.
+
+جزئیات نهایی توافق قراره به‌زودی اعلام بشه و تنگه هرمز هم دوباره باز میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390037
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390037_1779569886.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون کوه رو انقدر دفن نکردید تبدیل به کود شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید هر ده دقیقه: 🚨🚨🚨🚨🚨
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105784
+
+<div align="center">
+  <a href="telegram/content/manototv_105784_1779569886.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از سن‌فرانسیسکو:
+«می‌گفت با شنیدن صدای شما احساس می‌کنم تو ایرانم…
+و از سال‌هایی گفت که با برنامه‌های منوتو خندیده، گریه کرده و زندگی کرده بود.»
+</div>
+
+## manototv — post 105783
+
+<div align="center">
+  <a href="telegram/content/manototv_105783_1779569888.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان مونترآل، دوم خرداد ۱۴۰۵
+</div>
+
+## alonews — post 122189
+
+<div align="center">
+  <a href="telegram/content/alonews_122189_1779569889.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چه احساسی دارید؟
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122188
+
+<div align="center">
+  <a href="telegram/content/alonews_122188_1779569890.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مارک لوین:
+«تاریخ نشون داده که بهترین زمان برای صلح، بعد از شکست یا تسلیم دشمنه.»
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122187
+
+<div align="center">
+  <a href="telegram/content/alonews_122187_1779569890.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسایی:
+تنگه اگه باز بشه جواب اون مردمی که ۸۰روز اومدن تو خیابون رو کی میخواد بده؟
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122186
+
+<div align="center">
+  <a href="telegram/content/alonews_122186_1779569890.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تتر هم اکنون به 169000تومان رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122185
+
+<div align="center">
+  <a href="telegram/content/alonews_122185_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون ریزش شدید دلار و طلا
+
+
+🔴تتر 171000
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122184
+
+<div align="center">
+  <a href="telegram/content/alonews_122184_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈طی اتفاقی جالب بازهم پمپ بنزین‌ها شلوغ شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122183
+
+<div align="center">
+  <a href="telegram/content/alonews_122183_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: رژیم ایران را کاملا عوض کردیم
+
+پ.ن:😂
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122182
+
+<div align="center">
+  <a href="telegram/content/alonews_122182_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بزودی ۳۰روز مذاکرات هسته‌ای با قابلیت تمدید تا ۶۰روز آغاز خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122181
+
+<div align="center">
+  <a href="telegram/content/alonews_122181_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری و رسمی/تنگه هرمز باز میشه و جنگ تمام شد
+
+
+🔴مذاکرات بر سر پرونده هسته‌ای و مسائل دیگر بزودی آغاز خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122180
+
+<div align="center">
+  <a href="telegram/content/alonews_122180_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووری/ ترامپ هم اکنون اعلام کرد که پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122179
+
+<div align="center">
+  <a href="telegram/content/alonews_122179_1779569891.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووری/ ترامپ هم اکنون اعلام کرد که پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده، در حال نهایی شدن است و به زودی اعلام خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122178
+
+<div align="center">
+  <a href="telegram/content/alonews_122178_1779569892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنسول جمهوری آذربایجان در تبریز بر اثر تصادف در اتوبان جلفا-تبریز جان باخت. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122177
+
+<div align="center">
+  <a href="telegram/content/alonews_122177_1779569892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوری/پرواز جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 122176
+
+<div align="center">
+  <a href="telegram/content/alonews_122176_1779569892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 توییت دوباره اتاق جنگ اسرائیل
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122175
+
+<div align="center">
+  <a href="telegram/content/alonews_122175_1779569892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پرزيدنت ترامپ از اردوغان تشکر کرد که او را رهبر جهان قرن‌ها منتظر خوانده است. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122174
+
+<div align="center">
+  <a href="telegram/content/alonews_122174_1779569892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 یک منبع منطقه‌ای به Axios گفت که رهبران عرب و مسلمان شرکت‌کننده در تماس امروز با رئیس‌جمهور ترامپ به‌طور یک‌صدا از او خواستند که برای پایان دادن به جنگ و کاهش تنش‌ها در سراسر منطقه، به پیش برود.
+
+
+🔴«پیام همه این بود: لطفاً به خاطر منافع کل منطقه جنگ را متوقف کنید»، منبع گفت.
+
+
+🔴مذاکرات به‌طور مثبت پیش می‌رود و میانجی‌ها امیدوارند تا فردا یک توافق چارچوب یک‌صفحه‌ای را نهایی و اعلام کنند و سپس چند روز بعد مذاکرات درباره توافقی دقیق‌تر را آغاز کنند.
+
+
+🔴در حالی که پاکستان رهبری تلاش‌های میانجی‌گری را بر عهده داشته است، حمایت قطر در هفته گذشته همراه با فشار عربستان سعودی، مصر و ترکیه به کاهش اختلافات بین طرف‌ها کمک کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122173
+
+<div align="center">
+  <a href="telegram/content/alonews_122173_1779569893.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/باراک راوید از اکسیوس: امیدواریم فردا یک توافق چارچوبی بین ایران و آمریکا اعلام کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122172
+
+<div align="center">
+  <a href="telegram/content/alonews_122172_1779569893.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / هاآرتص به نقل از منابع اسرائیلی: رهبری سیاسی اسرائیل معتقد است ترامپ توافق را بر بازگشت به جنگ ترجیح می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122171
+
+<div align="center">
+  <a href="telegram/content/alonews_122171_1779569893.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فایننشال تایمز: آمریکا به ژاپن درباره تأخیرهای شدید در تحویل موشک‌های تاماهاوک به دلیل جنگ با ایران هشدار داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122170
+
+<div align="center">
+  <a href="telegram/content/alonews_122170_1779569893.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جلسه روزمرگی سران نظام
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 23:25
 ---
 
