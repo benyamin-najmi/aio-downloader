@@ -7,6 +7,1420 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 01:21
+---
+
+## VahidOOnLine — post 242358
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242358_1779832272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️علیرضا فیروزجا، استاد بزرگ ایرانی‌تبار شطرنج فرانسه، در دور نخست رقابت‌های معتبر «شطرنج نروژ» در اسلو دست به کار بزرگی زد و برای نخستین‌بار در دوران حرفه‌ای خود، مگنوس کارلسن، مدافع عنوان قهرمانی و مرد شماره یک شطرنج جهان را در بخش کلاسیک شکست داد. این پیروزی تاریخی در حالی رقم خورد که فیروزجا به دلیل آسیب‌دیدگی شدید مچ پا درمسابقات بخارست، مجبور بود با پای آتل‌بندی‌شده و کشیده روی صندلی بازی کند.
+کارلسن که با مهره سیاه بازی می‌کرد، در حرکت سی‌وسوم مرتکب اشتباهی فاحش شد و تنها پنج حرکت بعد ناچار به تسلیم شد. تورنمنت امسال با حضور شش شطرنج‌باز برتر جهان برگزار می‌شود. فیروزجا با این پیروزی ارزشمند کلاسیک، سه امتیازی شد و در صدر جدول ایستاد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242357
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242357_1779832273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت با توجه به احتمال نامساعد شدن شرایط جوی در روز آینده، جلسه چهارشنبه کابینه را در کاخ سفید برگزار خواهد کرد و سفر کابینه به کمپ دیوید را به تعویق خواهد انداخت.
+پیش‌تر گزارش شده بود که ترامپ صبح چهارشنبه در کمپ دیوید نشست کابینه را برگزار می‌کند. نیویورک‌پست نوشت در این نشست همه اعضای کابینه حضور خواهند داشت و جنگ ایران محور اصلی گفت‌وگوهاست. کاخ سفید اعلام کرد تولسی گبرد نیز در این نشست شرکت می‌کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242356
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242356_1779832273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مجلس سوئد با طرح دولت برای ممنوعیت ازدواج نزدیک فامیلی موافقت کرد؛ قانونی که با هدف مقابله با خشونت‌های ناموسی، فشار خانوادگی و ازدواج‌های اجباری تصویب شده است.
+بر اساس مصوبه تازه، ازدواج میان «فرزندان عمو، دایی، عمه و خاله» از اول ژوئیه ۲۰۲۶ در سوئد ممنوع خواهد شد.
+مجلس همچنین تصویب کرد افرادی که در نسبت‌های خانوادگی نزدیک دیگری قرار دارند نیز دیگر اجازه ازدواج نخواهند داشت.
+طبق این مصوبه، حتی خواهرخوانده‌ها و برادرخوانده‌ها یا خواهر و برادرهایی که از طریق فرزندخواندگی با یکدیگر نسبت خانوادگی پیدا کرده‌اند نیز دیگر نمی‌توانند مجوز ویژه ازدواج دریافت کنند. در قوانین پیشین سوئد، در برخی موارد استثنایی امکان دریافت مجوز وجود داشت.
+یکی دیگر از بخش‌های مهم قانون، مربوط به ازدواج‌هایی است که خارج از سوئد انجام می‌شوند. بر اساس قانون جدید، ازدواج فامیلی که در کشورهای دیگر ثبت شده باشد نیز در اغلب موارد در سوئد به رسمیت شناخته نخواهد شد؛ موضوعی که می‌تواند بر وضعیت حقوقی برخی مهاجران یا خانواده‌هایی که خارج از سوئد ازدواج کرده‌اند تاثیر بگذارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242355
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242355_1779832274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، با انتشار پیامی در شبکه اجتماعی «تروث سوشال»، از تغییر محل برگزاری نشست آینده کابینه خبر داد. ترامپ اعلام کرد که با توجه به پیش‌بینی احتمال شرایط آب‌وهوایی نامناسب برای فردا، سفر اعضای کابینه به استراحتگاه رسمی «کمپ دیوید» به تعویق افتاده است و این نشست در محل کاخ سفید برگزار خواهد شد.
+پیش‌تر، شبکه «سی‌ان‌بی‌سی» گزارش داده بود دونالد ترامپ قصد دارد چهارشنبه ششم خردادماه، نشست کم‌سابقه‌ای را با حضور تمامی اعضای کابینه و تولسی گبرد، مدیر اطلاعات ملی آمریکا، در استراحتگاه «کمپ دیوید» برگزار کند. هدف از این تجمع، بررسی مسائل داخلی، دستاوردهای اقتصادی و آخرین تحولات سیاست خارجی، به‌ویژه آینده توافق احتمالی با تهران پس از حملات اخیر آمریکا به مواضعی در ایران، عنوان شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242354
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242354_1779832275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خراتیان، کارشناس وابسته به حکومت، با اشاره به قصد احتمالی دونالد ترامپ بعد از انتخابات میان‌دوره‌ای ایالات متحده گفت اگر آمریکا پس از نوامبر ایران را تهدید کند و نشانه‌هایی از آمادگی نظامی دیده شود، جمهوری اسلامی باید از پیمان منع گسترش سلاح هسته‌ای خارج شود و ساخت سلاح اتمی را آغاز کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242353
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242353_1779832277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش ایسنا، سفر محمدباقر قالیباف،رئیس مجلس جمهوری اسلامی و رئیس هیئت مذاکره‌کننده جمهوری اسلامی به قطر با هدف پیگیری ترتیبات اجرایی مربوط به مطالبه جمهوری اسلامی ایران و نحوه دسترسی به ۱۲ میلیارد دلار از دارایی‌های بلوکه‌شده انجام شد.
+بر اساس این گزارش، در متن یک تفاهم ۱۴ ماده‌ای پیش‌بینی شده است که ۲۴ میلیارد دلار از منابع بلوکه‌شده جمهوری اسلامی ایران در طول مذاکرات آزاد شود. هیئت مذاکره‌کننده تاکید کرده است نیمی از این مبلغ هم‌زمان با اعلام یادداشت تفاهم در دسترس قرار گیرد و بخش باقی‌مانده نیز در مدت ۶۰ روز منتقل شود.
+ایسنا همچنین گزارش داد با توجه به تجربه‌های پیشین در روند آزادسازی دارایی‌های جمهوری اسلامی ایران در کره جنوبی و قطر، بر اجرای دقیق مراحل توافق تاکید شده تا مشکلات گذشته تکرار نشود. مذاکرات قطر نیز در مجموع مثبت و همراه با پیشرفت توصیف شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242352
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242352_1779832278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242351
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242351_1779832279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افیخای ادرعی، سخنگوی ارتش اسرائیل، در شبکه ایکس از ساکنان هفت شهر و روستا در جنوب لبنان خواست برای حفظ جان خود این مناطق را ترک کنند.
+
+سخنگوی عرب‌زبان ارتش اسرائیل با هشدار به ساکنان شهرها و روستاهای طورا، دیر قانون النهر، بدیاس، برج رحال، معرکه، العباسیه و طیر دبا، نوشت: «در پی نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه آن اقدام کند. ارتش قصد آسیب رساندن به شما را ندارد.»
+
+افیخای ادرعی تاکید کرد: «هر فردی که در نزدیکی نیروها، تاسیسات یا تجهیزات نظامی حزب‌الله حضور داشته باشد، جان خود را به خطر می‌اندازد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242350
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242350_1779832279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سازمان هواپیمایی کشوری، روز سه‌شنبه، پنجم خردادماه، اعلام کرد که بر اساس مصوبات نشست هماهنگی نهادهای لشکری و کشوری، ساعت کاری ۱۰ فرودگاه ایران با هدف تسهیل عملیات پروازی و ارتقای خدمات هوانوردی افزایش یافته و فعالیت آن‌ها ۲۴ ساعته شده است. بر این اساس، از این پس فرودگاه‌های بین‌المللی «امام خمینی» و مهرآباد تهران و همچنین فرودگاه‌های مشهد، ساری، بیرجند، گرگان، بجنورد، کرمان، زاهدان و سبزوار به‌صورت شبانه‌روزی به مسافران و پروازها خدمات‌رسانی خواهند کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9782
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9782_1779832280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 در تالار سایه‌ها، روایتِ بلبلِ درباری و عُظمایِ خون‌خوار سرشار از وحشت است؛ آنجا که علیرضا افتخاری روایت می‌کند که آقا به او فرموده چرا غمناک می‌خوانی، شاد بخوان و چرا برای مردم کنسرت نمی‌گذاری. این همنشینیِ هولناک با مقتدایِ تاریکی‌ها که دستش به احکامِ سرخ آغشته است، راه را برای کابوس‌های بعدی باز می‌کند؛ بعید نیست در قسمت‌های آینده، امیر تتلو را از بند بیرون بکشند تا از خاطرات عارفانه و شب‌زنده‌داری‌هایش با عظما بگوید، و پویان مختاری نیز که حالا به درجه اجتهاد رسیده، در صف مصاحبه ایستاده تا مدحِ این نظامِ خون‌خوار را بگوید؛ سیرکِ دارک و تلخی که در آن دژخیم، از مطربانِ خود بهارِ طربِ اجباری می‌طلبد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در مذاکرات با ایالات متحده، ایران می‌خواهد کنترل بخشی از حدود ۱۰۰ میلیارد دلار دارایی‌های مسدودشده توسط غرب را دوباره به دست بگیرد و همچنین به بازارهای جهانی نفت دسترسی پیدا کند. وال‌استریت ژورنال
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9780
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9780_1779832283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ساعت ۲۱:۲۳ به وقت گرینویچ پرواز DOOR 72 — یک فروند بمب‌افکن B-52H از پایگاه فیرفورد به پرواز درآمده و در حال ارتباط با بریز نورتن روی فرکانس 231.950 است. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام ؛ مدت‌هاست برای من روشن بوده که نقش پاکستان به‌عنوان میانجی، مسئله‌ساز است. خصومت آن‌ها نسبت به اسرائیل سابقه‌ای طولانی دارد.
+
+🔸انکارناپذیر است که هواپیماهای نظامی ایران در پایگاه‌های هوایی پاکستان مستقر شده‌اند و اظهارات گذشته مقامات بلندپایه پاکستانی علیه اسرائیل نگران‌کننده است.
+
+🔸در مورد اظهارات وزیر دفاع درباره توافقات ابراهیم، که گفته پاکستان هرگز به آن‌ها نخواهد پیوست چون به اسرائیل اعتماد ندارد: ممکن است این کلیپ مربوط به یک سال پیش باشد، اما من نگرانم که این طرز فکر همچنان تازه و زنده باشد.
+
+🔸در این راستا، ضروری است که پاکستان همین حالا به درخواست رئیس‌جمهور ترامپ برای پیوستن به توافقات ابراهیم پاسخ دهد.
+
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔰نماینده روسیه در سازمان ملل خطاب به کشورهای خلیج فارس درباره ایران: شما در سیاست آمریکا در خاورمیانه به گروگان گرفته شده‌اید. ما مدت‌هاست می‌گوییم اگر چنین چیزی رخ دهد، شما ناگزیر وارد این بحران خواهید شد، چه بخواهید و چه نخواهید.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 دونالد ترامپ قرار است فردا جلسه کابینه خود را در کمپ دیوید برگزار کند؛ اقدامی نادر که شامل سفر به اقامتگاه ریاست‌جمهوری است (در صورت مساعد بودن هوا). 🔸به گفته یک مقام کاخ سفید، انتظار می‌رود تمام اعضای کابینه در این جلسه حضور داشته باشند. نیویورک پست …
+</div>
+
+## mwarmonitor — post 9776
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9776_1779832285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ساعت ۲۱:۲۳ به وقت گرینویچ پرواز DOOR 72 — یک فروند بمب‌افکن B-52H از پایگاه فیرفورد به پرواز درآمده و در حال ارتباط با بریز نورتن روی فرکانس 231.950 است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9775
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9775_1779832286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ساعت ۲۱:۲۰ به وقت گرینویچ پرواز DOOR 73 — یک فروند بمب‌افکن B-52H از پایگاه فیرفورد به پرواز درآمده و در حال ارتباط با بریز نورتن روی فرکانس 231.950 است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9774
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9774_1779832287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌یک حرکت جدید – Coronet East 024
+
+✈️هواپیماهای سوخت رسان KC-46A با نام «BOBBY81» به شماره 19-46061 AE5FA8
+و KC-46A با نام «BOBBY82» به شماره 19-46007 AE574D
+
+✈️با کد مأموریت Coronet East 024 از خاک‌ آمریکا به پرواز درآمده‌اند. مشخص نیست که آیا از قبل هواپیمایی را همراهی می‌کردند یا اینکه این فقط یک پرواز جابه‌جایی و موقعیت‌گیری است، اما بدون شک به‌زودی مشخص خواهد شد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جنگ در ایران نشان داده است که تأسیسات نمک‌زدایی آب (آب‌شیرین‌کن‌ها) در کشورهای عربی حوزه خلیج فارس تا چه اندازه آسیب‌پذیر هستند.
+
+🔸مسئله امنیت آب برای جمعیت کشورهای خلیج فارس در آینده تنها تشدید خواهد شد. مگر اینکه ایالات متحده آماده باشد سلطه بلندمدت ایران بر کشورهای خلیج فارس و همچنین تنگه هرمز را بپذیرد، در غیر این صورت باید بازدارندگی مؤثری در برابر حملات ایران به زیرساخت‌های حیاتی پیدا کند. «اندیشکده هادسن»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91596
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91596" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرعت موشکی متصل نامحدود برا تمام اوپراتورها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91595
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4106328d-9bc4-4e07-be57-e43db1b5a245@185.143.234.235:2053?type=ws&encryption=none&path=%3Fed%3D2048&host=dl.lexwill.site&security=tls&fp=chrome&alpn=h2%2Chttp%2F1.1&sni=dl.lexwill.site#Lex-480q68sz
+
+بزنید❤️
+</div>
+
+## pm_afshaa — post 91594
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91594_1779832288.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+PMTV NEWS🦁☀️.npvt
+</div>
+
+## pm_afshaa — post 91593
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91593" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نا محدود سرعت بالا بدون قطعی
+
+بفرستین برا بقیه اونام وصل شن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv متصل سرعت بالا 
+💧 Rainbet.com…
+</div>
+
+## pm_afshaa — post 91591
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چنل مردمی فایتر رادار دنبال کنید
+
+
+https://t.me/+9C1ENi5qn6hhZjk0
+
+https://t.me/+9C1ENi5qn6hhZjk0
+</div>
+
+## pm_afshaa — post 91590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از سرعت سرورا راضین میتونین از lex vpn که سرورارو داره به صورت رایگان بهمون میرسونه حمایت کنین @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 91589
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91589" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت نامحدود وصل رو تمامی سرورا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91588
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از سرعت سرورا راضین میتونین از lex vpn که سرورارو داره به صورت رایگان بهمون میرسونه حمایت کنین @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 91587
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه از سرعت سرورا راضین میتونین از lex vpn که سرورارو داره به صورت رایگان بهمون میرسونه حمایت کنین @Lex_Server @Lex_Server
+</div>
+
+## pm_afshaa — post 91586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv متصل سرعت بالا 
+💧 Rainbet.com…
+</div>
+
+## pm_afshaa — post 91585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv متصل سرعت بالا 
+💧 Rainbet.com…
+</div>
+
+## pm_afshaa — post 91584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4bebe55d-a34f-46f2-90ec-c292248c3076@weysam.luxurygaming1.ir:80?path=%2F&security=none&encryption=none&host=weysam.luxurygaming1.ir&type=ws#pmtv متصل سرعت بالا برای تمام اوپراتور ها 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom…
+</div>
+
+## pm_afshaa — post 91583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://f479f518-b927-4516-9723-52b27012aebd@185.143.234.235:2053?path=%3Fed%3D2048&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&host=dl.lexwill.site&fp=chrome&type=ws&allowInsecure=0&sni=dl.lexwill.site#Pmtv
+
+متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91582
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم سرعت نپسترا خداسسس
+</div>
+
+## pm_afshaa — post 91581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دمت گرم سرعت نپسترا خداسسس
+</div>
+
+## pm_afshaa — post 91580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://4bebe55d-a34f-46f2-90ec-c292248c3076@weysam.luxurygaming1.ir:80?path=%2F&security=none&encryption=none&host=weysam.luxurygaming1.ir&type=ws#pmtv
+
+متصل سرعت بالا برای تمام اوپراتور ها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه ای کشته شد
+</div>
+
+## pm_afshaa — post 91578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خامنه ای کشته شد
+</div>
+
+## pm_afshaa — post 91577
+
+<div align="center">
+  <a href="https://t.me/pm_afshaa/91577" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپسترنت v2ray پرسرعت
+🚀
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 
+⭕️ صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.…
+</div>
+
+## DEJradio — post 5007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ترامپ نشست ویژهٔ کابینه را از کمپ دیوید به کاخ سفید منتقل کرد
+
+دونالد ترامپ، رئیس‌ جمهوری ایالات متحده اعلام کرد به دلیل احتمال وضعیت نامساعد آب‌وهوا، نشست روز چهارشنبهٔ کابینه را از کمپ دیوید، به کاخ سفید منتقل می‌کند.
+ترامپ در شبکهٔ اجتماعی تروث خبر داد که سفر اعضای کابینه به کمپ دیوید به تعویق می‌افتد.
+ترامپ قصد داشت نشستی کم‌سابقه را با حضور همهٔ اعضای کابینه و محوریت جمهوری اسلامی، در استراحت‌گاه کمپ‌دیوید برگزار کند.
+بر پایهٔ گزارش‌ها تولسی گبرد، مدیر اطلاعات ملی آمریکا نیز به نشست ویژهٔ کابینه در روز چهارشنبه فراخوانده شده است.
+
+#خبر #دژ #کمپ_دیوید #ترامپ
+@DEJradio
+</div>
+
+## DEJradio — post 5006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دو تظاهرات در پاریس برای پشتیبانی از شاهزاده و علیه سرکوب و اعدام در ایران
+
+هزاران شهروند ایرانی، فرانسوی‌ و اسرائیلی‌ در پاریس، در پشتیبانی از شاهزاده رضا پهلوی و علیه اعدام و سرکوب معترضان در ایران، تظاهرات کردند.
+در دو‌ تظاهرات جداگانهٔ این هفته در پاریس، شرکت‌کنندگان بارها پشتیبانی خود را از شاهزاده رضا پهلوی برای رهبری مبارزات سرنگونی جمهوری اسلامی اعلام کردند.
+تظاهرکنندگان بارها با سردادن شعارهایی علیه جمهوری اسلامی اسلامی، سازش احتمالی غرب با رژیم را مورد انتقاد قرار دادند.
+در این دو‌ تجمع، شرکت‌کنندگان خواستار توقف اعدام‌ها و اتصال دوبارهٔ اینترنت برای استفادهٔ همهٔ مردم ایران شدند.
+برگزاری پرفورمنس در مورد کشته‌شدگان، اعلام همبستگی مردم ایران و اسرائیل و‌ اجرای موسیقی همبستگی و اعتراضی، از دیگر برنامه‌های شرکت‌کنندگان در این تظاهرات بود.
+
+#خبر #دژ #همبستگی #پاریس
+@DEJradio
+</div>
+
+## DEJradio — post 5005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ هشدار السیسی به پزشکیان دربارهٔ حمله به کشورهای منطقه
+
+عبدالفتاح السیسی، رئیس‌ جمهوری مصر، در تماس تلفنی با مسعود پزشکیان مخالفت قاطع قاهره را با هرگونه اقدام جمهوری علیه کشورهای حاشیهٔ خلیج فارس اعلام کرد.
+السیسی همچنین بر ضرورت کاهش تنش‌ها، استفاده از دیپلماسی و پرهیز از محاسبات اشتباه تأکید کرده است.
+بنا بر گزارش‌ها رئیس ‌جمهوری مصر خواسته تا فرصت کامل برای ادامهٔ مذاکره میان آمریکا و جمهوری اسلامی فراهم شود.
+به گفتهٔ مقام‌های مصری، قاهره در تماس‌ها و رایزنی‌های منطقه‌ای برای تسهیل توافق میان تهران و واشینگتن به‌شدت فعال است.
+
+#خبر #دژ #مصر
+@DEJradio
+</div>
+
+## DEJradio — post 5004
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ارتش اسرائیل به عملیات زمینی گسترده در جنوب لبنان ادامه می‌دهد
+
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل گفت ارتش این کشور با «نیروهای زمینی گسترده» در جنوب لبنان در حال عملیات است. به گفتهٔ او ارتش مناطق راهبردی جنوب لبنان‌را در کنترل خود می‌گیرد.
+روز سه‌شنبه کابینهٔ امنیتی اسرائیل با محور دو جبههٔ لبنان و جمهوری اسلامی تشکیل جلسه داد.
+روز سه‌شنبه رسانه‌های بومی از حملات هوایی اسرائیل به شهر نبطیه در جنوب لبنان پس از هشدار تخلیه خبر دادند.
+نتانیاهو روز دوشنبه به ارتش اسرائیل دستور داده بود حملات را برای درهم کوبیدن حزب‌الله
+پی بگیرند.
+جمهوری اسلامی برای دستیابی به توافق با آمریکا به توقف حملات اسرائیل به حزب‌الله پافشاری می‌کند.
+
+#خبر #دژ #اسرائیل
+@DEJradio
+</div>
+
+## DEJradio — post 5003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ترامپ در کمپ‌دیوید با اعضای دولت آمریکا در مورد جمهوری اسلامی گفت‌وگو می‌کند
+
+دونالد ترامپ، رئیس‌ جمهوری آمریکا، روز چهارشنبه نشستی کم‌سابقه‌ را با اعضای کابینهٔ خود در اقامتگاه کمپ‌دیوید برگزار می‌کند.
+به گزارش خبرگزاری فرانسه، در این نشست که همزمان با مذاکرات تهران و واشینگتن برگزار می‌شود، محور اصلی گفت‌وگوها بر سر ایران است.
+روزنامهٔ نیویورک‌پست نوشت همهٔ اعضای کابینه در این نشست حضور دارند و علاوه بر ایران، اقتصاد جهانی نیز در دستور کار است.
+ترامپ پیش‌تر گفته بود توافق با جمهوری اسلامی برای پایان دادن به جنگ «نزدیک» است، اما هشدار داد در صورت دست نیافتن به یک توافق بزرگ و معنادار، حملات آمریکا می‌تواند از سرگرفته شود.
+
+#خبر #دژ #ترامپ
+@DEJradio
+</div>
+
+## DEJradio — post 5002
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5002_1779832290.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📌 کار ترامپ با جمهوری اسلامی تمام نشده است.
+متاسفانه فضای رسانه‌ای و شبکه‌های اجتماعی مملو از اخباری است که موج ناامیدی را تزریق می‌کند. بسیاری از کارشناسان و تحلیل‌گرانی که سیاست کلان بین‌الملل را صرفا در فضای خبری و رسانه‌ای و شبکه های اجتماعی جست‌وجو می‌کنند، فراموش می‌کنند که این فضا از ابتدا برای نمایش، فریب، پنهان‌کاری و مدیریت افکارعمومی شکل گرفته است؛ فضایی که در آن نمی‌توان هر خبر و روایتی را بدون هدف و نیت خاصی واقعی و بی‌ جهت دانست.
+
+توافقی که در رسانه‌های جمهوری اسلامی از آن می‌گویند، از نگاه آمریکا یک تسلیم‌‌نامه است یعنی ترامپ به دنبال تسلیم بی‌قید و شرط جمهوری اسلامی است و سرداران سپاه و تندروهای نظام نیز به خوبی می‌دانند که پذیرش چنین تسلیمی، در نهایت به معنای تن دادن به فروپاشی و سرنگونی نرم نظام خواهد بود به همین دلیل حاضر به پذیرش آن نیستند و شروطی را تعیین می کنند که عملا این توافق و یا بهتر بگوئیم تسلیم نامه ممکن نباشد.
+
+ترامپ نیز برای وادار کردن جمهوری اسلامی به پذیرش این تسلیم، از روش‌های گوناگون استفاده می‌کند و همچنان گزینه نظامی یکی از آن روش‌هاست؛ همان‌گونه که شب گذشته نیز حملات محدودی علیه جمهوری اسلامی انجام شد.
+اما نباید فراموش کنیم که در نهایت این مردم ایران هستند که کار را تمام خواهند کرد.
+
+#ترامپ #مذاکرات
+@DEJradio
+</div>
+
+## VahidOnline — post 75740
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75740_1779832291.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست ترامپ، ترجمه ماشین:
+با توجه به احتمال نامساعد بودن شرایط جوی در روز آینده، جلسه کابینه را در کاخ سفید برگزار خواهیم کرد و سفر کابینه به کمپ دیوید را به تعویق می‌اندازیم.
+
+از توجه شما به این موضوع سپاسگزارم!
+رئیس‌جمهور دونالد جی. ترامپ
+realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87685
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87685_1779832291.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز
+جمهوری اسلامی درخواست ۲۴ میلیارد دلار برای هر توافقی با آمریکا کرده است.
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 339164
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339164_1779832293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت با توجه به احتمال نامساعد شدن شرایط جوی در روز آینده، جلسه چهارشنبه کابینه را در کاخ سفید برگزار خواهد کرد و سفر کابینه به کمپ دیوید را به تعویق خواهد انداخت.
+پیش‌تر گزارش شده بود که ترامپ صبح چهارشنبه در کمپ دیوید نشست کابینه را برگزار می‌کند. نیویورک‌پست نوشت در این نشست همه اعضای کابینه حضور خواهند داشت و جنگ ایران محور اصلی گفت‌وگوهاست. کاخ سفید اعلام کرد تولسی گبرد نیز در این نشست شرکت می‌کند.
+
+https://iranintl.com/202605260928
+</div>
+
+## IranIntlTV — post 339163
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339163_1779832294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال گفت: «اتصال دوباره دسترسی مردم به اینترنت بعد از سه ماه هر چند با فلیترینگ و با محدودیت اما بار دیگر به ملت امکان داد تا صدای مخالفت خود با جمهوری اسلامی و پایبندی به خیزش دی‌ماه و هدف سرنگونی را تکرار کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339162
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339162_1779832296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خراتیان، کارشناس وابسته به حکومت، با اشاره به قصد احتمالی دونالد ترامپ بعد از انتخابات میان‌دوره‌ای ایالات متحده گفت اگر آمریکا پس از نوامبر ایران را تهدید کند و نشانه‌هایی از آمادگی نظامی دیده شود، جمهوری اسلامی باید از پیمان منع گسترش سلاح هسته‌ای خارج شود و ساخت سلاح اتمی را آغاز کند.
+</div>
+
+## IranIntlTV — post 339161
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339161_1779832297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+https://iranintl.com/202605265248
+</div>
+
+## IranIntlTV — post 339160
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339160_1779832298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات اعلام کرد اینترنت بین‌الملل برای مشترکان این شرکت برقرار شده و نت‌بلاکس در شبکه ایکس نوشت میزان دسترسی به اینترنت بین‌المللی در ایران به ۸۶ درصد رسیده است. این در حالی است که ساعاتی پیش دیوان عدالت اداری، زیر نظر قوه قضاییه جمهوری اسلامی، اعلام کرد اجرای مصوبه اتصال اینترنت را متوقف کرده است.
+
+
+گفت‌وگو با سحر تحویلی، پژوهشگر حوزه فناوری اطلاعات و نجات بهرامی، تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339159
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339159_1779832301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه، گفت مذاکره‌کنندگان جمهوری اسلامی در چارچوب تفاهم احتمالی با آمریکا، دنبال آزادسازی ۲۴ میلیارد دلار از دارایی‌های بلوکه‌شده ایران هستند؛ پولی که به گفته منبع نزدیک به تیم مذاکره‌کننده، باید در جریان مذاکرات آزاد شود.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339158
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339158_1779832304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افیخای ادرعی، سخنگوی ارتش اسرائیل، در شبکه ایکس از ساکنان هفت شهر و روستا در جنوب لبنان خواست برای حفظ جان خود این مناطق را ترک کنند.
+
+سخنگوی عرب‌زبان ارتش اسرائیل با هشدار به ساکنان شهرها و روستاهای طورا، دیر قانون النهر، بدیاس، برج رحال، معرکه، العباسیه و طیر دبا، نوشت: «در پی نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه آن اقدام کند. ارتش قصد آسیب رساندن به شما را ندارد.»
+
+افیخای ادرعی تاکید کرد: «هر فردی که در نزدیکی نیروها، تاسیسات یا تجهیزات نظامی حزب‌الله حضور داشته باشد، جان خود را به خطر می‌اندازد.»
+https://iranintl.com/202605261988
+</div>
+
+## IranIntlTV — post 339157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339157_1779832304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات از برقراری کامل اینترنت بین‌الملل برای مشترکان خبر داد. معاون وزیر ارتباطات گفت روند وصل شدن اینترنت در حال انجام است و تا ۲۴ ساعت آینده کامل می‌شود، اما دیوان عدالت اداری اجرای مصوبه اتصال را متوقف کرده است.
+
+گفت‌وگو با سحر تحویلی، پژوهشگر در حوزه فناوری اطلاعات
+@iranintltv
+</div>
+
+## Shin_Persian — post 6255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 21:01:02 UTC
+
+https://www.timesofisrael.com/liveblog_entry/initial-assessments-said-to-indicate-hamass-new-military-chief-successfully-killed-in-strike/
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 26 May 2026 20:45:59 UTC
+
+So, Mohammed Odeh, the new commander of the Izziddin Al Qassam (Military wing of Hamas) is DEAD.
+
+فارسی
+
+بنابراین، محمد عوده، فرمانده جدید گردان‌های عزالدین قسام (شاخه نظامی حماس) کشته شد.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6253
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6253_1779832306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek Tue, 26 May 2026 20:20:51 UTC A New Movement - Coronet East 024 #FreeIran‌ --- Operation EPIC FURY / Project FREEDOM --- KC-46A "BOBBY81" 19-46061 #AE5FA8 KC-46A "BOBBY82" 19-46007 #AE574D have launched on mission code for…
+</div>
+
+## Shin_Persian — post 6252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+DefenceGeek 🇬🇧 ✓ @DefenceGeek
+Tue, 26 May 2026 20:20:51 UTC
+
+A New Movement - Coronet East 024 #FreeIran‌
+--- Operation EPIC FURY / Project FREEDOM ---
+
+KC-46A "BOBBY81" 19-46061 #AE5FA8
+KC-46A "BOBBY82" 19-46007 #AE574D
+
+have launched on mission code for Coronet East 024. No idea if they're dragging someone already or if this is a positioning flight, but we'll find out soon no doubt!
+
+@MATA_osint
+
+فارسی
+
+یک جنبش جدید - Coronet East 024 #FreeIran
+--- عملیات خشم حماسی (Operation EPIC FURY) / پروژه آزادی (Project FREEDOM) ---
+
+KC-46A "BOBBY81" 19-46061 #AE5FA8
+KC-46A "BOBBY82" 19-46007 #AE574D
+
+با کد مأموریت Coronet East 024 به پرواز درآمدند. مشخص نیست که آیا همین حالا در حال اسکورت (سوخت‌رسانی) کسی هستند یا این یک پرواز موقعیت‌دهی است، اما بدون شک به زودی متوجه خواهیم شد!
+
+@MATA_osint
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺منابع خبری: ترامپ و نتانیاهو سه‌شنبه تلفنی گفت‌وگو کردند
+
+▪️منابع خبری در اسرائیل اعلام کردند دونالد ترامپ رئیس جمهوری آمریکا، و بنیامین نتانیاهو نخست وزیر اسرائیل، سه‌شنبه ۵ خرداد تلفنی با هم گفت‌وگو کردند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154194.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️لفاظی‌های جمهوری اسلامی برای آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218744
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218744_1779832307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس جمهوری آمریکا، روز سه‌شنبه ۵ خرداد در شبکه تروت‌سوشال گفت به دلیل شرایط احتمالی بد آب و هوایی در روز چهارشنبه، نشست کابینه در کاخ سفید برگزار می‌شود و سفر به «کمپ دیوید» به آینده موکول شده است.
+
+پیشتر رسانه‌ها گزارش داده بودند که نشست ویژه رئیس جمهوری آمریکا و اعضای کابینه روز چهارشنبه در کمپ دیوید برگزار خواهد شد.
+
+خبر این نشست ساعاتی پس از آن گزارش شد که نیروهای ایالات متحده روز دوشنبه چند قایق تندرو سپاه و سایت‌های موشکی جمهوری اسلامی را هدف قرار دادند. رسانه‌های حکومتی در ایران از کشته شدن چند تن از اعضای سپاه خبر دادند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218743
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ روز چهارشنبه با اعضای کابینه خود نشست ویژه‌ای در «کمپ دیوید» برگزار می‌کند
+
+▪️کاخ سفید روز سه‌شنبه ۵ خرداد اعلام کرد دونالد ترامپ، رئیس جمهوری ایالات متحده، روز چهارشنبه نشست ویژه‌ای را با حضور تمام اعضای کابینه در کمپ دیوید برگزار خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/president-trump-special-camp-david-cabinet-meeting-iran/8154183.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218742
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218742_1779832307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مهدی فتا پور: هم آمریکا و هم جمهوری اسلامی خواهان توافق هستند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218741
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218741_1779832308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نازیلا گلستان در برنامه تفسیر خبر: بخش ولایت فقیه جمهوری اسلامی از بین رفته است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218740
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218740_1779832309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبیز غفوری در برنامه تفسیر خبر: دنیا کمتر به قطر اعتماد می کند تا امارات متحده عربی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218739
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218739_1779832310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از پول‌های بلوکه شده ایران در قطر
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/TrPiEz5YpyQ?feature=share
+</div>
+
+## Persian_Trend_Official — post 15088
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/15088" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 10.33 مگابایت
+
+اتاق جنگ سه شنبه 5 خرداد | درگیری مرگبار در خلیج فارس اینترنت فعلا آزاد شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15087
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15087_1779832312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پهپاد لوکاس امریکایی سالم در دست عراقی ها
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15086
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15086_1779832314.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ محمد عوده فرمانده گردان قسام حماس توسط ارتش اسرائیل ترور شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157588
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157588" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«حملات آمریکا به جنوب ایران و ابهام در مذاکرات پیش رو»
+
+🔸در حالی که میانجی‌گران پاکستانی و قطری در روزهای گذشته، برای پیشبرد توافق موقت و بازگشایی تنگه هرمز تلاش می‌کنند، حملات بامداد سه‌شنبه آمریکا به اهدافی درجنوب ایران و نزدیکی تنگه هرمز،‌ ابهاماتی را بر سر به نتیجه رسیدن این گفتگوها ایجاد کرده است. از سوی دیگر، میزان و نحوه آزادسازی منابع مسدودشده ایران از سوی آمریکا نیز، از دیگر موانع موجود در آغاز مذاکرات دو طرف عنوان شده است. در همین زمینه، ارزیابی امید معماریان، کارشناس مسائل ایران در اندیشکدهٔ داون «DAWN» در واشینگتن را جویا شده ایم.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20846
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20846" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول مخابرات
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خر خودتانید!
+
+وقتی هواپیمای نخبه‌های جوان را زدید، تا سه روز گفتید هیچ نمی‌دانید، گفتید خودش سقوط کرده.
+بعد از اینکه ترامپ نصیحت‌تان کرد راستش را بگویید، اگر اشتباهی زده‌اید بگویید...
+تا فهمیدید دنیا اسناد جنایت شما را دارد ناگهان یادتان آمد دو‌ موشک هم با بی‌رحمی به سمت هواپیما شلیک کرده بودید و البته قرار نبوده کسی بفهمد!
+کسی به شما نگفته بوده که "خیلی خرید"
+(حیف از ان حیوان نجیب) حالا بدانید!
+
+فکر می‌کنید وقتی گفتید فلانی و فلانی در زندان خودکشی کردند، فلانی و فلانی به مرگ طبیعی مُردند، فکر می‌کنید وقتی جوان‌هایی پس از ازادی ناگهان سکته می‌کنند و شما می.گویید عمر دست خداست. ما چه می‌گوییم؟
+خر خودتانید. ولی آنقدر احمقید که نمی‌فهمید چقدر خرید.
+
+وقتی می‌گویید قیمت دلار آزاد در زندگی مردم هیچ تاثیر مهمی ندارد!
+وقتی می‌گویید آمریکا از ما می‌ترسد.
+وقتی می‌گویید ما در خارج از مرزها کاری نمی‌کنیم.
+وقتی می‌گویید مهاجرت‌ها نگران کننده نیستند!
+وقتی می‌گویید مردم ما را می‌خواهند،
+چه نیازی به رفراندوم است.
+وقتی می‌گویید ما بخاطر خدا حکومت می‌کنیم.
+می‌دانید ما چه می‌گوییم، نه در گوشی؛
+"خر خودتانید"
+خیلی خرید
+شما آنقدر احمقید
+که ارزش گفتگو ندارید
+آنقدر نجس شده‌اید که دست دادن با شما
+هر کسی را نجس و ناپاک می‌کند
+بروید و بمیرید با حقارت، با روسیاهی.
+
+ببینید جز عده‌ای مواجب بگیر
+عده‌ای روسیاه‌تر از خودتان
+چیزی برایتان مانده!؟
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20843
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💯 اگر هنوز ۵۰۰ هزارتومان رو نگرفتی همین الان عضو شو‌ و جایزتو بگیر
+نیازی هم به واریز نیست
+
+👍 تنها سایت مورد #تایید ما با بونوس های واقعی
+
+🌐 Winro.io
+</div>
+
+## IranianMinds — post 20842
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20842_1779832315.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💩 
+⚠️ دیگه #فریب بونوس های الکی سایت های سودجو رو نخورید
+❌
+
+
+💲بیا توی سایت مورد تایید ما یعنی #وینرو و با عضویت 500 هزار تومان اعتبار بی قیدو شرط بگیر
+👏
+
+
+🤩با عضویت 
+🤩 
+🤩 
+🤩 هزار تومان اعتبار رایگان بگیر!
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان5a1
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 20841
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش ماهم میتونستیم مثل اینترنت برگردیم به قبل از دی ماه
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20840
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20840" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول مخابرات
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام دوستان من نتم تازه وصل شده آقای خامنه ای عید نوروز رو تبریک نگفتن اتفاقی افتاده خدایی نکرده؟
+</div>
+
+## IranianMinds — post 20838
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20838_1779832316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نت‌بلاکس :
+در ایران ۸۶ درصد مردم تا الان وصل شدن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282131
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282131_1779832317.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک شب پس از آن که فرماندهی مرکزی نیروی دریایی آمریکا - سنتکام - از حمله به چند سایت پرتاب موشک و قایق تندرو ایران در نزدیکی سواحل بندرعباس و تنگه هرمز خبر داد و آن را «حمله تدافعی» خواند، وزارت خارجه ایران با صدور بیانیه‌ای این اقدام را «نقض فاحش آتش‌بس» و «دلیل سوءظن عمیق» ایران به آمریکا دانسته است.
+
+در بیانیه روز سه‌شنبه وزارت خارجه ایران که بخشی از آن را برایتان پیش تر همینجا گزارش کردیم و متن کامل آن اکنون منتشر شده،‌ آمده است: « ارتکاب این اقدامات تجاوزکارانه، همزمان با روند دیپلماتیک جاری به میانجیگری پاکستان، بار دیگر بدسگالی و بدعهدی هیات حاکمه آمریکا را برای ملت ایران، مردمان منطقه و جامعه جهانی عیان کرد و نشان داد که رویکرد اصولی ملت ایران، در هر سه عرصه میدان، خیابان و دیپلماسی، مبنی بر سوء ظن عمیق نسبت به رژیم آمریکا مبتنی بر منطق و فهمی عمیق از ماهیت و عملکرد کین‌توزانه و جنایتکارانه آن در قبال مردم ایران است.»
+
+ادامه خبر در لینک زیر:
+
+https://bbc.in/4306rcp
+📷EPA
+@bbcpersian
+</div>
+
+## Dirty_Kids — post 390276
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب مدیر سایت پورن هاپ:
+
+ویورِرررررررررره🤯
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390275
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390275_1779832318.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خداخافظ بله.
+خداحافظ روبیکا.
+خداحافظ ایتا.
+خداحافظ سروش.
+خداحافظ آیگپ.
+خداحافظ گپ جی‌پی‌تی‌.
+خداحافظ ذره‌بین.
+خداحافظ گردو.
+
+سلام یارای قدیمی 😂😍
+سلام اطلاعات آزاد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من عادت ندارم همه چی با هم وصل باشه، هر چه سریعتر برق رو قطع کنید
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390273
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام دوستان من نتم تازه وصل شده آقای خامنه ای عید نوروز رو تبریک نگفتن اتفاقی افتاده خدایی نکرده؟
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390272
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏کانفیگ فروشا تو شوک رفتن چیزی نمیگن؛ قیمت رو آپدیت کن چاقال میخوام با ۵۰ هزار تومن ۱۰۰ گیگ بخرم.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش سریال succession رو فراموش میکردم تا دوباره ببینمش
+تو هیچ سریالی انقدر حس های متفاوتی رو تجربه نکرده بودم
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390270
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390270_1779832319.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید باورتون نشه ولی ملت هنوز هم خوب کسخلن؛
+جلسه پاکسازی روح و روان که خداتومن هزینشه :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390269
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390269_1779832321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای بچه‌ها اینو !
+ما چرا ندیدیم لعنتیا 😂
+
+#عجب_وضع_کسشریه
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122951
+
+<div align="center">
+  <a href="telegram/content/alonews_122951_1779832323.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صداسیما :
+وصل شدن اینترنت متوقف میشه و دستور رییس جمهور اجرا نمیشه چون خلاف دیوان عالیه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122950
+
+<div align="center">
+  <a href="telegram/content/alonews_122950_1779832324.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ساخت و ساز برای رویداد UFC Freedom 250 که در ۱۴ ژوئن برگزار می‌شود، در چمنزار جنوبی کاخ سفید آغاز شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122949
+
+<div align="center">
+  <a href="telegram/content/alonews_122949_1779832326.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس سازمان بهزیستی:
+بیش از یک میلیون کودک بازمانده از تحصیل در کشور داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122948
+
+<div align="center">
+  <a href="telegram/content/alonews_122948_1779832326.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈العربیه: اقدامات تقویت شده دفاع از آسمان در عربستان سعودی فعال است تا زیارت حج را در برابر تهدیدات ایرانی محافظت کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122947
+
+<div align="center">
+  <a href="telegram/content/alonews_122947_1779832327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیج فیک متعلق به انقلاب شیر و خورشید
+
+
+🔴رفتار سایبری ها رو بهتر بشناسید.
+
+
+🤔پایگاه مقداد مقیم خارج نتونست جلوی خودش را نگه داره
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122946
+
+<div align="center">
+  <a href="telegram/content/alonews_122946_1779832327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران: همه چیز انجام شده، چیزی باقی نمانده جز [امضای توافق]
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122945
+
+<div align="center">
+  <a href="telegram/content/alonews_122945_1779832327.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت خارجه آمریکا :
+- عملیات «خشم حماسی» هیچ توجیهی برای حملات بی‌دلیل ایران به نیروهای آمریکایی تو منطقه نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122944
+
+<div align="center">
+  <a href="telegram/content/alonews_122944_1779832328.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صادق الحسینی: رئیس‌جمهور مملکت حتی برای باز کردن اینترنت بعد از چند ماه هم اختیارات کافی ندارد! این چه وضع حکمرانی است؟! ‎
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش ما هم مثل اینترنت به وضعیت قبل دی ماه برمیگشتیم. [@AloTweet]
+</div>
+
+## alonews — post 122942
+
+<div align="center">
+  <a href="telegram/content/alonews_122942_1779832328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز:
+جمهوری اسلامی درخواست ۲۴ میلیارد دلار برای هر توافقی با آمریکا کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122941
+
+<div align="center">
+  <a href="telegram/content/alonews_122941_1779832330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب الله امروز تصاویری منتشر کرد که نشان می دهد یک Fpv به طور مستقیم به یک وسیله نقلیه نظامی اسرائیلی که سربازان ارتش اسرائیل را در بنت جبیل ، جنوب لبنان حمل می کند ، حمله کرده است.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122940
+
+<div align="center">
+  <a href="telegram/content/alonews_122940_1779832331.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی چقدر مردم رو فقیر و بدبخت نگه داشته که بخاطر یدونه مرغ صدقه‌ای اینجوری صف کشیدن.
+
+
+🔴کشوری که روی بزرگترین منابع طبیعی قرار داره.
+
+
+🔴خمینی: شمارا به مقام انسانیت می‌رسانیم.
+
+
+🤔ویدیو یه نکته‌ داره ببینیم میتونید پیدا کنید
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122939
+
+<div align="center">
+  <a href="telegram/content/alonews_122939_1779832331.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : فردا جلسه کابینه تو کاخ سفید برگزار می‌کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122938
+
+<div align="center">
+  <a href="telegram/content/alonews_122938_1779832332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال ۱۴ اسرائیل: از افراد درون این عکس(فرماندهان حماس) هیچکس زنده نمانده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122937
+
+<div align="center">
+  <a href="telegram/content/alonews_122937_1779832332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری از محمد عوده، فرمانده شاخه نظامی حماس که ساعاتی قبل در غزه ترور شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122936
+
+<div align="center">
+  <a href="telegram/content/alonews_122936_1779832332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش چشم: میتونیم بمب اتم درست کنیم و بجای اینکه بزنیم تو شهرها، بزنیم تو پایگاه‌های آمریکا
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122935
+
+<div align="center">
+  <a href="telegram/content/alonews_122935_1779832332.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حالا مردم خودشون آنلاین شدن و دارن می‌بینن این حرام زاده های «سیم‌کارت سفید» تو این سه ماه چه مزخرفات و چرندیاتی رو به اسم مردم ایران جعل کردن و نشر دادن تو رسانه ها.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 122934
+
+<div align="center">
+  <a href="telegram/content/alonews_122934_1779832333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈از کسایی که تو تجمعات شبانه شرکت کردن دارن میپرسن نظرتون با قطع دائم اینستاگرام چیه؟
+
+
+🔴و اما جواب حامیان حکومت:
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122933
+
+<div align="center">
+  <a href="telegram/content/alonews_122933_1779832334.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال‌استریت‌ژورنال: ایران به دنبال توافقی است که بدون واگذاری پیروزی به ترامپ، موجب آرامش اقتصادی شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122930
+
+<div align="center">
+  <a href="telegram/content/alonews_122930_1779832335.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 آتش‌سوزی گسترده شهری در فیلیپین را درنوردید و 489 خانواده را تحت تأثیر قرار داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 23:24
 ---
 
