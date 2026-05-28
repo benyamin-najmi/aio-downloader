@@ -7,6 +7,927 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:59
+---
+
+## VahidOOnLine — post 242669
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242669_1780007364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️جی‌دی ونس، معاون رئیس‌جمهوری آمریکا پنج‌شنبه ۷ خرداد در گفتگو با خبرنگاران اعلام کرد که واشنگتن هنوز به توافق با ایران دست نیافته، اما دو طرف به یکدیگر نزدیک هستند. به گزارش رویترز، ونس با اشاره به روند گفتگوها تاکید کرد که ایالات متحده در موقعیتی قرار دارد که در صورت لزوم می‌تواند برنامه هسته‌ای تهران را به طور قابل‌توجهی به عقب بازگرداند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242668
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242668_1780007365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی «یک هواگرد» را در آسمان این شهرستان در استان بوشهر هدف قرار داده‌اند و اکنون وضعیت منطقه عادی است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242667
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242667_1780007366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از سه مقام آمریکایی گزارش داد واشینگتن و تهران، هم‌زمان با گفت‌وگو درباره خواسته‌های ترامپ برای پایان دادن به برنامه هسته‌ای ایران، به چارچوبی برای مذاکرات نزدیک شده‌اند که می‌تواند به بازگشایی تنگه هرمز منجر شود.
+به نوشته نیویورک‌تایمز، ترامپ هنوز این چارچوب در حال شکل‌گیری را تایید نهایی نکرده و روشن نیست آیا این متن با برداشت طرف ایرانی نیز همخوانی دارد یا نه. مقام‌های کاخ سفید تاکنون فقط تصویری مبهم از توافق مقدماتی ارائه کرده‌اند.
+بر اساس این گزارش، چارچوب پیشنهادی می‌تواند آتش‌بس را تمدید و زمینه مذاکرات جدی‌تر را سه ماه پس از آغاز جنگ فراهم کند. در این روند، با پیشرفت مذاکرات، بخشی از فشار اقتصادی بر حکومت ایران کاهش خواهد یافت.
+نیویورک‌تایمز نوشت از نگاه آمریکا، هر توافقی باید شامل اعلام برائت ایران از برنامه هسته‌ای و هرگونه قصد برای دستیابی به سلاح هسته‌ای، و همچنین کنار گذاشتن اورانیوم با غنای بالای جمهوری اسلامی باشد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242666
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242666_1780007366.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی آمریکا، سنتکام، پنجشنبه هفتم خرداد با انتشار تصاویری اعلام کرد که ناو هواپیمابر «یواس‌اس آبراهام لینکلن» در حین عبور از دریای عرب، عملیات پروازی انجام داده است. سنتکام پیش‌تر اعلام کرده بود این ناو و نیروهای همراه آن در چارچوب عملیات‌های آمریکا در منطقه و پشتیبانی از محاصره دریایی اعمال‌شده بر بنادر ایران فعالیت می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242661
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242661_1780007367.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا در گفتگو با شبکه فاکس‌نیوز در پاسخ به سوالی درباره خط قرمز واشنگتن برای اقدام نظامی دوباره اعلام کرد که مرز نهایی و خط قرمز اصلی، توافقی است که برای آمریکا خوب نباشد. ترامپ با بیان اینکه شرایط را زیر نظر دارد و باید دید در آینده چه پیش می‌آید، طرف مقابل را مذاکره‌کنندگانی بسیار خوب و حیله‌گر توصیف کرد، اما تاکید کرد که در نهایت تمامی کارت‌های بازی در دست آمریکا قرار دارد، چرا که واشنگتن پیش از این آن‌ها را از نظر نظامی شکست داده است.
+پیش‌تر، ان‌بی‌سی نیوز به نقل از یک مقام ارشد عرب گزارش داده بود مذاکره‌کنندگان آمریکا و جمهوری اسلامی ایران سه روز پیش در دوحه بر سر مفاد توافق آتش‌بس به تفاهم رسیده‌اند، اما اعلام نهایی آن به تعویق افتاده است. همچنین آکسیوس به نقل از منابع آمریکایی و منطقه‌ای گزارش داد طرفین بر سر یک تفاهم‌نامه ۶۰ روزه برای تمدید آتش‌بس و آغاز گفتگوها درباره برنامه هسته‌ای به توافق رسیده‌اند، اما اجرای آن همچنان نیازمند تایید نهایی دونالد ترامپ است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242660
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242660_1780007368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت خزانه‌داری آمریکا اعلام کرد تحریم‌های جدیدی مرتبط با جمهوری اسلامی ایران اعمال شده است.
+بر اساس این اعلام، دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا ۱۷ شرکت و نهاد، از جمله شرکت «سپهر انرژی جهان نمای پارس» و همچنین هشت کشتی با پرچم کشورهای مختلف را در چارچوب تلاش‌ها برای مختل کردن شبکه تجارت نفت و پتروشیمی جمهوری اسلامی ایران تحریم کرده است.
+وزارت خزانه‌داری آمریکا اعلام کرد این تحریم‌ها بخشی از تلاش‌ها برای قطع منابع درآمدی مرتبط با فروش نفت جمهوری اسلامی است. اسکات بسنت، وزیر خزانه‌داری آمریکا، تاکید کرد که این اقدامات بخشی از کمپین «خشم اقتصادی» برای قطع منابع مالی رژیم ایران و متوقف کردن فعالیت‌های بی‌ثبات‌کننده آن در منطقه است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 91799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+پروکسی مخصوص دانلود فیلم و سریال سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان :به جلیلی گفتم توام بیا یه گوشه کارو بگیر کمک کن کشورو درست کنیم. گفت نه من فقط پیشنهاد میدم. گفتم پیشنهاد به چه دردم میخوره اخه عمل میخوام; نخواستیم اصلا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91797
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رکنا : یه پسر 20 ساله دزفولی که دارای اختلالات روانی بود، پدر و مادر و برادر خودش رو سلاخی کرد و به قتل رسوند و در آخر خودکشی کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## mamlekate — post 103602
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 الو ساعت ۰۰:۱۳ جمعه ۸ خرداد
+بیدگنه صدای پدافند پشت‌ هم
+
+
+📝الو جمعه فعالیت مکرر پدافند در لنجان اصفهان
+
+
+📝 همدان ساعت ۱ شب چندتا صدای مهیب اومد برقم دوبار قطع و وصل شد
+
+
+🚀 گزارش‌های رسانه‌های حکومتی در ایران از حملات موشکی جمهوری اسلامی
+
+@mamlekate
+</div>
+
+## VahidOnline — post 75782
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75782_1780007368.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس‌نیوز: جی‌دی ونس می‌گوید ایالات متحده در مذاکرات با ایران «پیشرفت زیادی» داشته و معتقد است تهران «حداقل تا حالا با حسن نیت در حال مذاکره است.»
+
+جی‌دی ونس: خب، فکر می‌کنم گفتن دقیق اینکه رئیس‌جمهور دقیقاً چه زمانی یا اصلاً تفاهم‌نامه را امضا خواهد کرد، سخت است. ما در حال رفت‌وآمد بر سر چند نکتهٔ زبانی هستیم.
+کاملاً واضح است که به نظر من، ایرانی‌ها — آنها یک معامله می‌خواهند. آنها می‌خواهند تنگهٔ هرمز را باز کنند. ما هم می‌خواهیم تنگهٔ هرمز را باز کنیم.
+
+🔸چند مسئله در مورد موضوع هسته‌ای وجود دارد: ذخیرهٔ اورانیوم غنی‌شدهٔ بالا و همچنین مسئلهٔ غنی‌سازی.
+
+پس می‌دانید، ما با آنها در حال چانه‌زنی و رفت‌وآمد هستیم. ما واقعاً فکر می‌کنیم آنها حداقل تا حالا با حسن نیت مذاکره می‌کنند.
+داریم پیشرفت می‌کنیم و امیدواریم به این پیشرفت ادامه دهیم تا رئیس‌جمهور در موقعیتی قرار بگیرد که بتواند توافق را تأیید کند.
+FoxNews
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339481
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339481_1780007369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه سیاست‌های فشار اقتصادی بر جمهوری اسلامی، وزیر خزانه‌داری آمریکا اعلام کرد دسترسی دو شرکت هواپیمایی ایرانی به خدمات فرودگاهی، سوخت‌گیری و فروش بلیت را قطع می‌کند.او همچنین نهاد مدیریت تنگه هرمز وابسته به سپاه را تحریم کرد.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339480
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339480_1780007371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سازمان «حقوق بشر برای ورزش» به همراه ائتلافی متشکل از ۳۴ نهاد جامعه مدنی از سراسر جهان، در آستانه جام جهانی ۲۰۲۶ با ارسال نامه‌ای فوری به فیفا، نگرانی‌های جدی خود را نسبت به بحران فزاینده حقوق بشر در فوتبال ایران و تداوم حضور عادی تیم ملی در رقابت‌های فیفا مطرح کرده‌اند.
+
+🔹در این نامه با اشاره به بازداشت‌های خودسرانه فوتبالیست‌های ایرانی، گزارش‌های تأییدشده درباره کشته شدن دست‌کم ۴۴ فوتبالیست در روزهای ۱۸ و ۱۹ دی‌ماه ۱۴۰۴، حذف و سرکوب سیستماتیک زنان در فوتبال ایران، و نیز نگرانی‌ها درباره حضور و نفوذ عوامل امنیتی دولتی در ساختار مدیریتی و همراهی تیم ملی،‌تأکید شده است که وضعیت کنونی با تعهدات حقوق بشری فیفا در تضاد قرار دارد.
+
+🔹در این نامه هشدار داده شده است که ادامه حضور عادی تیم ملی ایران در شرایط فعلی می‌تواند به مشروعیت‌بخشی به این وضعیت و تداوم آسیب‌های سیستماتیک منجر شود.
+
+🔹فیفا در چارچوب اصول راهنمای سازمان ملل در زمینه کسب‌وکار و حقوق بشر، فیفا موظف است از نقض‌های حقوق بشری مرتبط با فعالیت‌ها و مسابقات خود پیشگیری کرده و نسبت به آن‌ها اقدام کند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339479
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339479_1780007371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه سی‌بی‌اس به نقل از یک مقام ارشد عرب گزارش داد مذاکره‌کنندگان آمریکا و جمهوری اسلامی سه روز پیش بر سر مفاد توافق آتش‌بس به تفاهم رسیده‌اند، اما اعلام و نهایی شدن آن به تعویق افتاده است.
+همزمان با انتشار گزارش‌ها درباره نهایی شدن توافق، درگیری‌ها در منطقه ادامه دارد.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339478
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339478_1780007373.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از سه مقام آمریکایی گزارش داد واشینگتن و تهران، هم‌زمان با گفت‌وگو درباره خواسته‌های ترامپ برای پایان دادن به برنامه هسته‌ای ایران، به چارچوبی برای مذاکرات نزدیک شده‌اند که می‌تواند به بازگشایی تنگه هرمز منجر شود.
+به نوشته نیویورک‌تایمز، ترامپ هنوز این چارچوب در حال شکل‌گیری را تایید نهایی نکرده و روشن نیست آیا این متن با برداشت طرف ایرانی نیز همخوانی دارد یا نه. مقام‌های کاخ سفید تاکنون فقط تصویری مبهم از توافق مقدماتی ارائه کرده‌اند.
+بر اساس این گزارش، چارچوب پیشنهادی می‌تواند آتش‌بس را تمدید و زمینه مذاکرات جدی‌تر را سه ماه پس از آغاز جنگ فراهم کند. در این روند، با پیشرفت مذاکرات، بخشی از فشار اقتصادی بر حکومت ایران کاهش خواهد یافت.
+نیویورک‌تایمز نوشت از نگاه آمریکا، هر توافقی باید شامل اعلام برائت ایران از برنامه هسته‌ای و هرگونه قصد برای دستیابی به سلاح هسته‌ای، و همچنین کنار گذاشتن اورانیوم با غنای بالای جمهوری اسلامی باشد.
+https://iranintl.com/202605281303
+</div>
+
+## IranIntlTV — post 339477
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339477_1780007373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید به ایران‌اینترنشنال اعلام کرد جمهوری اسلامی آمادگی خود برای امضای یادداشت تفاهم نهایی را به دونالد ترامپ اطلاع داده است؛ اکسیوس نیز از توافق بر سر تفاهم‌نامه ۶۰ روزه خبر داد، اما دونالد ترامپ هنوز آن را تایید نکرده است.
+
+سمیرا قرایی از کاخ سفید گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339476
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339476_1780007375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339475
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339475_1780007376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339474
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339474_1780007376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## IranIntlTV — post 339473
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339473_1780007377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود تنگستانی، فرماندار جم، به خبرگزاری صدا و سیما گفت نیروهای مسلح جمهوری اسلامی یک هواگرد را در آسمان جم در استان بوشهر هدف قرار دادند و هم‌اکنون شهرستان در وضعیت عادی قرار دارد.
+طبق این گزارش، دلیل صدای انفجار در جم، مقابله پدافند با هواگردهای متخاصم بوده است.
+https://iranintl.com/202605280555
+</div>
+
+## Shin_Persian — post 6290
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6290_1780007377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 21:16:53 UTC
+
+And IRGC's Fars confirms the earlier missile launch
+
+فارسی
+
+و خبرگزاری فارس (وابسته به سپاه پاسداران) شلیک موشک در زمان زودتر را تایید می‌کند.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 21:14:07 UTC
+
+מי שלא מכסח את הדשא, הדשא מכסח אותו!
+
+English
+
+Whoever does not mow the lawn, the lawn mows them!
+
+فارسی
+
+هر کس که چمن را کوتاه نکند، چمن او را از پا در می‌آورد!
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218939
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218939_1780007378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ از «تورم ۲۵۰ درصدی» در ایران می‌گوید و شهروندان از بحران معیشت؛ گفت‌وگو با مریم سعیدی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218938
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اینترنت در ایران نصفه‌نیمه برگشت؛ خاموشی برق و قبض‌های سنگین هم دنبالش آمد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218937
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218937_1780007379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی به کویت حمله کرد؟ گفت‌وگو با یاسین اهوازی، کارشناس امور خاورمیانه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218936
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️توافق همکاری نظامی روسیه و حکومت طالبان؛ نگرانی‌های آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218935
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218935_1780007380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاهش علاقه جوانان در ایران به تحصیل در رشته‌های علوم پایه؛ گفت‌وگو با پیروز نامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218934
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218934_1780007380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️چرا جمهوری اسلامی قیمت بنزین در ایران را با سایر کشورها مقایسه می‌کند؟ گفت‌وگو با رضا غیبی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218933
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کنکور ۱۴۰۵ در سایه جنگ و بلاتکلیفی؛ دانش‌آموزان به خیابان آمدند
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا شبکه فروش نفت مرتبط با نیروهای مسلح جمهوری اسلامی را تحریم کرد
+
+▪️دفتر کنترل دارایی‌های خارجی وزارت خزانه‌داری آمریکا، اوفک، روز پنج‌شنبه تحریم‌های تازه‌ای را علیه فروش نفت از سوی تشکیلات نظامی جمهوری اسلامی اعلام کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154983.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218931
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218931_1780007381.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاربران ایرانی از «وقتی شما نبودید» می‌گویند؛ بازگشت قطره‌چکانی اینترنت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218930
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218930_1780007382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش عفو بین الملل در مورد افزایش سرکوب‌ها در ایران؛ گفت‌وگو با اسفندیار ابان
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تقویت نظامی ناتو در بالتیک؛ گوتلاند در خط مقدم بازدارندگی در برابر تهدیدهای روسیه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218928
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218928_1780007383.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی سنتکام از انجام ماموریت ناو هواپیمابر آبراهام لینکلن در حین عبور از «دریای عرب»
+
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش‌های رسانه‌های حکومتی در ایران از حملات موشکی جمهوری اسلامی
+
+▪️خبرگزاری فارس، وابسته به سپاه پاسداران، اواخر پنج‌شنبه ۷ خرداد از شلیک موشک از مناطق جنوبی ایران خبر داد و مدعی شد که مقصد این موشک‌ها مشخص نیست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154974.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15210
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15210_1780007384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد. همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است. 📝 Amir 📌 @persian_trend_official پرشین…
+</div>
+
+## Persian_Trend_Official — post 15209
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15209_1780007384.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: یک پهپاد متجاوز امریکایی در نزدیکی بوشهر با موفقیت رهگیری شد.
+
+همچنین فرماندار شهرستان جم در استان بوشهر گفت: اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود. هم اینک شهرستان در وضعیت عادی است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/JrqroHI5pq8?feature=share
+</div>
+
+## Persian_Trend_Official — post 15207
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15207_1780007385.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20975
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم :
+
+یه پهپاد آمریکایی رو تو بوشهر زدیم بمولا.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20974
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20974_1780007385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست عجیب کاخ سفید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20973
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20973_1780007386.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+آنها مذاکره‌کنندگان بسیار خوبی هستند آنها زیرک‌اند
+اما ما همه کارت‌ها را در دست داریم
+چون آنها را از نظر نظامی شکست داده‌ایم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز شب شدو تو جنوب کشور جنگ شد
+
+طبق معمول هیچکدومش هم نقض آتش بس نیست
+
+
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر‌گزاری مهر از شنیده شدن صدای انفجار در شهر جم از توابع استان بوشهر و واکنش پدافند ضد‌هوایی ایران به جنگنده‌های دشمن در آسمان بوشهر خبر داد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282286
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282286_1780007387.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری‌های ایران به نقل از مقام‌های محلی و نظامی از «رهگیری» و «هدف قرار گرفتن» آنچه «هواگرد متخاصم» نامیده‌اند، در اطراف بوشهر خبر داده‌اند.
+
+مسعود تنگستانی، فرماندر شهر جم - در نزدیکی بوشهر - عصر پنجشنبه در گفتگو با صدا و سیما ضمن تایید این خبر گفت: «اتفاقی که امشب به وقوع پیوست مربوط به انهدام یک هواگرد متخاصم بود توسط نیروهای مسلح. هم اینک شهرستان در وضعیت عادی است.»
+
+در همین حال، خبرگزاری تسنیم، نزدیک به سپاه پاسداران، با اشاره به شنیدن صدای انفجار در نزدیکی سواحل تنگه هرمز نوشته است: «براساس گزارش پدافند ارتش، منشأ انفجارها از سمت دریا و مربوط به تبادل آتش در اخطار به کشتی‌های متخلف در تنگه هرمز بوده است.»
+
+در چند روز گذشته، چند درگیری و حمله نظامی متقابل میان ایران و آمریکا روی داده که هر دو طرف ضمن متهم کردن یکدیگر به نقض آتش‌بس، از تلاش برای حفظ آن و «اقدامات نظامی تدافعی» سخن گفته‌اند.
+
+https://bbc.in/4uFuqtC
+📷 Majid Saeedi/Getty Images
+@BBCPersian
+</div>
+
+## BBCPersian — post 282285
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282285_1780007388.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+شیخ تمیم بن حمد آل ثانی، امیر قطر، در تماسی تلفنی با دونالد ترامپ، رئیس جمهور آمریکا، در مورد تحولات منطقه‌ای گفتگو کرد.
+
+دفتر امیر قطر در گزارشی از این مکالمه تلفنی اعلام کرد که شیخ تمیم بر اهمیت اولویت دادن به راه‌حل‌های دیپلماتیک و گفت‌وگو بین همه طرف‌ها به امید جلوگیری از تنش‌ها و تشدید بیشتر در خاورمیانه تأکید کرد.
+
+در این بیانیه آمده است که ترامپ نیز به نوبه خود از نقش قطر در حمایت از تلاش‌های میانجیگری پاکستان بین واشنگتن و تهران قدردانی کرد و «از تلاش‌های قطر برای رفع اختلافات و ترویج کاهش تنش در منطقه» تمجید کرد.
+
+https://bbc.in/4vgvuEb
+📷Reuters
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390441
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390441_1780007388.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵 رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش…
+</div>
+
+## Dirty_Kids — post 390440
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390440_1780007389.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴مسابقات جذاب جام جهانی به زودی شروع میشه بیا توی کانال دکتر بت و باهاش همراه شو و پول در بیار
+💵
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A7
+
+🌟اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین
+👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 390439
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390439_1780007389.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390438
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390438_1780007390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 به گفته کاربران؛ درحالِ حاضر و تو شرایط فعلی این فیلترشکن‌ها وصلن :
+
+
+BiubiuVPN
+
+VPN Hotspot Shield: Secure VPN
+
+VPN - Fast VPN Super
+
+BeePass VPN
+
+Ostrich VPN - Proxy Master
+
+X-VPN: VPN Fast & Secure
+
+JumpJumpVPN: Fast & Secure
+
+VPN Windscribe: Fast & Secure
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390437
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390437_1780007390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این off campus عجب زناییه
+عاشقش شدم
+
+ابکی
+مسخره
+بی منطق
+قشنگ دنبال همچین چیزی بودم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مناسبت گذشتن ۹۰ روز از ترور خامنه‌ای، نود بده.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390435
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390435_1780007390.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یه طوری تو روز روشن درباره ساده زیستی خامنه ای مهمل میبافن که انگار من بودم که bmw ضدگلوله اسکورت زیر پام بوده
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390434
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390434_1780007391.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت مودم:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390433
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390433_1780007392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این #چالش جدیده مدل تبلیغاتیش
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین سرعت با بهترین قیمت با God Vpn🔵 تخفیف ویژه برای امشب فقط✅😍 10 گیگ فقط 280,000 تومن😍 متصل حتی در شرایط جنگی به خاطر اختصاصی بودن✅❤️😍 کانفیگ اقتصادی در ربات دوم 20 گیگ 290,000 تومن😍 برای نمایندگان پنل نمایندگی فعال میشه👍❤️ ✅تضمین بدون قطعی 🌐 اتصال…
+</div>
+
+## alonews — post 123412
+
+<div align="center">
+  <img src="telegram/content/alonews_123412_1780007394.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین سرعت با بهترین قیمت با God Vpn🔵
+تخفیف ویژه برای امشب فقط✅😍
+
+
+10 گیگ فقط 280,000 تومن😍
+متصل حتی در شرایط جنگی به خاطر اختصاصی بودن✅❤️😍
+
+کانفیگ اقتصادی در ربات دوم 20 گیگ 290,000 تومن😍
+
+برای نمایندگان پنل نمایندگی فعال میشه👍❤️
+
+✅تضمین بدون قطعی
+🌐 اتصال با تمامی دستگاه
+🔻🏪پشتیبانی ۲۴ ساعته
+✔️ دور زدن نت ملی
+🔘 بالاترین سرعت با تمام اپراتورها
+⭐با کیفیت عالی و ضمانت بازگشت وجه
+🌐🌐🌐🌐🌐🌐⭐️
+➖➖➖➖➖➖➖➖➖➖
+جهت خرید کانفیگ اختصاصی در این ربات:
+@GodVpnV2_Bot
+
+خرید کانفیگ اقتصادی در این ربات:
+@v2raypc1bot
+
+ایدی کانال:
+t.me/God_of_Vpn
+پشتیبانی و خرید عمده:
+@Mmkhh00
+@Pc_V2ray
+</div>
+
+## alonews — post 123408
+
+<div align="center">
+  <a href="telegram/content/alonews_123408_1780007395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌های امشب ارتش اسرائیل به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123407
+
+<div align="center">
+  <a href="telegram/content/alonews_123407_1780007396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بعد از سال‌ها پُرشدگی سد کرج به 70 درصد رسید!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123406
+
+<div align="center">
+  <a href="telegram/content/alonews_123406_1780007396.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست عجیب کاخ سفید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123405
+
+<div align="center">
+  <a href="telegram/content/alonews_123405_1780007396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری که الجزیره از شدت خسارت حملات آمریکا به تاسیسات فولاد اصفهان منتشر کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123404
+
+<div align="center">
+  <a href="telegram/content/alonews_123404_1780007397.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران:
+یادداشت تفاهم، حاصل جمعبندی مذاکرات در سطح دیپلماتیک است.
+
+
+🔴برای اجرایی شدن، نیاز به امضای مقامات عالی در تهران و واشنگتن دارد.
+
+
+🔴نیت توافق وجود دارد و انتظار می‌رود که از مرحله نیت به مرحله عمل منتقل شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123403
+
+<div align="center">
+  <a href="telegram/content/alonews_123403_1780007397.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ستاد فرماندهی مرکزی آمریکا «سنتکام» شامگاه پنج‌شنبه هفتم خرداد ویدیویی از عملیات پروازی انجام شده از عرشه ناو هواپیمابر ابراهام لینکولن[USS Abraham Lincoln (CVN 72)] در جریان حرکت آن در دریای عرب و پشتیبانی از محاصره دریایی اعمال شده بر بنادر ایران، منتشر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123402
+
+<div align="center">
+  <a href="telegram/content/alonews_123402_1780007398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان:
+به جلیلی گفتم توام بیا یه گوشه کارو بگیر کمک کن کشورو درست کنیم. گفت نه من فقط پیشنهاد میدم. گفتم پیشنهاد به چه دردم میخوره اخه. عمل میخوام. نخواستیم اصلا.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123401
+
+<div align="center">
+  <a href="telegram/content/alonews_123401_1780007398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سوخت رسان KC3 بریتانیا برفراز عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀مصرف بالا؟ حجم‌خوری زیاد؟ اینو ببین 👇 💎 همراه با ساب یعنی مصرف بهینه‌تر و تجربه بهتر ⚡️ 🚀 سرعت عالی پایدار برای استفاده روزانه و بلند مدت😍😍 @NetAazaadBot @NetAazaadBot 😍آف فقط برای امشب😍 ❌ گیگی 50T ❌ ✅ فقط گیگی 25T ✅ @NetAazaadBot @NetAazaadBot 🔥 یه…
+</div>
+
+## alonews — post 123399
+
+<div align="center">
+  <img src="telegram/content/alonews_123399_1780007398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀مصرف بالا؟ حجم‌خوری زیاد؟ اینو ببین 👇
+💎 همراه با ساب یعنی مصرف بهینه‌تر و تجربه بهتر
+⚡️
+🚀 سرعت عالی پایدار برای استفاده روزانه و بلند مدت😍😍
+
+@NetAazaadBot
+@NetAazaadBot
+
+😍آف فقط برای امشب😍
+❌ گیگی 50T ❌
+✅ فقط گیگی 25T ✅
+
+@NetAazaadBot
+@NetAazaadBot
+🔥 یه بار امتحان کن، خودت تفاوتشو حس می‌کنی✅
+</div>
+
+## alonews — post 123396
+
+<div align="center">
+  <a href="telegram/content/alonews_123396_1780007398.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یواش یواش برخی از اکانتهای امنیتی حذف جانشین سردار تنگسیری را دارن تایید میکنند در حمله دیشب آمریکا به بندرعباس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:15
 ---
 
