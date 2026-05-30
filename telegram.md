@@ -7,6 +7,624 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 23:56
+---
+
+## VahidOOnLine — post 242950
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242950_1780172792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، رییس سازمان عقیدتی سیاسی انتظامی گفت: «بر عهد خود برای تداوم راه ولایت و مطالبه انتقام سخت از عاملان به شهادت رساندن رهبرمان پایبندیم.»
+
+او افزود: «نهادهای مسئول باید پیگیری حقوقی و بین‌المللی این جنایت را در اولویت قرار داده و حکم الهی برای قاتلان امام شهید را در ملاعام اجرا کنند.»
+
+شیرازی ادامه داد: «ملت ما تا زمان قصاص قاتلان امام خود و خروج کامل استکبار از منطقه، میدان‌های مبارزه را ترک نخواهند کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242949
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242949_1780172792.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشریه هیل نوشت ثبات واقعی در خلیج فارس مستلزم از بین بردن توانایی رژیم ایران برای تهدید تجارت جهانی، اعمال فشار بر همسایگان و گروگان گرفتن بازارهای انرژی است. هر چیزی کمتر از این، صرفا وقفه‌ای کوتاه پیش از رویارویی بسیار خطرناک‌تری خواهد بود.
+
+آریل کوهن، پژوهشگر شورای آتلانتیک و نویسنده این تحلیل نوشته نقشه راهبردی خاورمیانه در حال تغییر است و به نظر می‌رسد نفوذ آمریکا در این منطقه رو به کاهش باشد.
+
+او با اشاره به نزدیک شدن تهران و واشینگتن به یک توافق نوشته است برای کسانی که دهه‌هاست این منطقه را مطالعه می‌کنند، این وضعیت نمونه‌ای از «ربودن شکست از آغوش پیروزی» به نظر می‌رسد.
+
+او در ادامه نوشته است تعیین اهداف روشن جنگی، پیش‌شرط ضروری پیروزی نظامی است. همان‌گونه که رییس‌جمهوری و وزیر خارجه آمریکا اعلام کرده‌اند، اهداف واشینگتن در این درگیری روشن بود: جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای، تضعیف توان موشک‌های بالستیک ایران، و برچیدن یا دست‌کم تضعیف شبکه نیروهای نیابتی که تهران برای اعمال نفوذ در خاورمیانه ایجاد کرده است؛ از حماس در غزه و حزب‌الله در لبنان گرفته تا حوثی‌ها در یمن.
+https://iranin
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242948
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242948_1780172793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم فوتبال پاری‌سن‌ژرمن با پیروزی برابر آرسنال در فینال لیگ قهرمانان اروپا، برای دومین فصل متوالی عنوان قهرمانی این رقابت‌ها را به دست آورد.
+این دیدار در وقت‌های قانونی و اضافه با تساوی ۱-۱ به پایان رسید؛ جایی که کای هاورتز در دقیقه ۵ آرسنال را پیش انداخت، اما عثمان دمبله در دقیقه ۶۵ از روی نقطه پنالتی کار را به تساوی کشاند تا بازی به وقت‌های اضافه کشیده شود.
+در نهایت، سرنوشت قهرمان در ضربات پنالتی مشخص شد و پاری‌سن‌ژرمن با نتیجه ۴ بر ۳ به پیروزی رسید تا جام را بالای سر ببرد.
+این نخستین بار از سال ۲۰۱۶ بود که فینال لیگ قهرمانان اروپا به وقت‌های اضافه کشیده می‌شد؛ دیداری که با هیجان بالا و رقابت نزدیک دو تیم، به یکی از به‌یادماندنی‌ترین فینال‌های سال‌های اخیر تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242947
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242947_1780172793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منوچهر متکی، نماینده تهران در مجلس، در یک برنامه تلویزیونی گفت که آمریکایی‌ها هیچ نشانه‌ای از پذیرفتن شروط جمهوری اسلامی از خود نشان نداده‌اند.
+
+متکی اضافه کرد: «علاوه بر آمریکا، کشورهای عربستان سعودی و امارات متحده عربی هم باید به ما غرامت بپردازند.»
+
+او ادامه داد: «ترامپ ممکن است در میانه ۶۰ روز هم بازی دربیارود. یکی از محورهای اصلی ما در مذاکرات، دریافت غرامت است.»
+
+او افزود: «پاکستانی‌ها باید مراقب باشند، شاید آمریکا کاری را که با پادشاه پیشین عمان انجام داد با پاکستان هم انجام دهد. در آن زمان خواستند عمان نامه‌ای به جمهوری اسلامی تحویل دهد و بعد ادعا کردند که ما چنین نامه‌ای ندادیم.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9923
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9923_1780172794.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یک مین دریایی در آب‌های سرزمینی عمان در Strait of Hormuz مشاهده شده است. 🔹این موضوع مسیر آبی‌ای را که آمریکا برای اسکورت مخفیانه کشتی‌ها از آن استفاده می‌کرد، مسدود می‌کند. @mwarmonitor
+</div>
+
+## DEJradio — post 5163
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5163_1780172794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔺 تجمع ایرانیان مقیم کلن در آلمان در حمایت از انقلاب شیروخورشید و جاویدنامان راه آزادی
+
+#همبستگی #جاویدنامان #کلن
+@DEJradio
+</div>
+
+## IranIntlTV — post 339788
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339788_1780172796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، رییس سازمان عقیدتی سیاسی انتظامی گفت: «بر عهد خود برای تداوم راه ولایت و مطالبه انتقام سخت از عاملان به شهادت رساندن رهبرمان پایبندیم.»
+
+او افزود: «نهادهای مسئول باید پیگیری حقوقی و بین‌المللی این جنایت را در اولویت قرار داده و حکم الهی برای قاتلان امام شهید را در ملاعام اجرا کنند.»
+
+شیرازی ادامه داد: «ملت ما تا زمان قصاص قاتلان امام خود و خروج کامل استکبار از منطقه، میدان‌های مبارزه را ترک نخواهند کرد.»
+https://iranintl.com/202605304918
+</div>
+
+## IranIntlTV — post 339787
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339787_1780172797.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنای یادبود لینکلن در واشینگتن میزبان تجمع ایرانیان و حامیان غیرایرانی جنبش دادخواهی بود.
+
+این گردهمایی در گرامی‌داشت جان‌باختگان و در اعتراض به ادامه اعدام‌ها و سرکوب در ایران برگزار شد.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال و گفت‌وگو با سیامک آرام، برگزارکننده، و یکی از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## IranIntlTV — post 339786
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339786_1780172798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه صدور احکام سنگین برای معترضان و زندانیان سیاسی، حکم اعدام بنیامین نقدی، از معترضان دی‌ماه، به اتهام «افساد فی‌الارض» صادر شده است. هم‌زمان، گزارش‌ها از تایید حکم اعدام رئوف شیخ‌معروفی و محمد فرجی، از بازداشت‌شدگان جنبش «زن، زندگی، آزادی»، در دیوان عالی کشور حکایت دارد.
+
+جزییات بیشتر با پگاه بنی‌هاشمی، پژوهشگر ارشد حقوق
+@iranintltv
+</div>
+
+## IranIntlTV — post 339785
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339785_1780172800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشریه هیل نوشت ثبات واقعی در خلیج فارس مستلزم از بین بردن توانایی رژیم ایران برای تهدید تجارت جهانی، اعمال فشار بر همسایگان و گروگان گرفتن بازارهای انرژی است. هر چیزی کمتر از این، صرفا وقفه‌ای کوتاه پیش از رویارویی بسیار خطرناک‌تری خواهد بود.
+
+آریل کوهن، پژوهشگر شورای آتلانتیک و نویسنده این تحلیل نوشته نقشه راهبردی خاورمیانه در حال تغییر است و به نظر می‌رسد نفوذ آمریکا در این منطقه رو به کاهش باشد.
+
+او با اشاره به نزدیک شدن تهران و واشینگتن به یک توافق نوشته است برای کسانی که دهه‌هاست این منطقه را مطالعه می‌کنند، این وضعیت نمونه‌ای از «ربودن شکست از آغوش پیروزی» به نظر می‌رسد.
+
+او در ادامه نوشته است تعیین اهداف روشن جنگی، پیش‌شرط ضروری پیروزی نظامی است. همان‌گونه که رییس‌جمهوری و وزیر خارجه آمریکا اعلام کرده‌اند، اهداف واشینگتن در این درگیری روشن بود: جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای، تضعیف توان موشک‌های بالستیک ایران، و برچیدن یا دست‌کم تضعیف شبکه نیروهای نیابتی که تهران برای اعمال نفوذ در خاورمیانه ایجاد کرده است؛ از حماس در غزه و حزب‌الله در لبنان گرفته تا حوثی‌ها در یمن.
+https://iranin
+</div>
+
+## IranIntlTV — post 339784
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339784" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: آیا اسرائیل از توافق ترامپ و جمهوری اسلامی پیروی می‌کند؟!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339783
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339783_1780172801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منوچهر متکی، نماینده تهران در مجلس، در یک برنامه تلویزیونی گفت که آمریکایی‌ها هیچ نشانه‌ای از پذیرفتن شروط جمهوری اسلامی از خود نشان نداده‌اند.
+
+متکی اضافه کرد: «علاوه بر آمریکا، کشورهای عربستان سعودی و امارات متحده عربی هم باید به ما غرامت بپردازند.»
+
+او ادامه داد: «ترامپ ممکن است در میانه ۶۰ روز هم بازی دربیارود. یکی از محورهای اصلی ما در مذاکرات، دریافت غرامت است.»
+
+او افزود: «پاکستانی‌ها باید مراقب باشند، شاید آمریکا کاری را که با پادشاه پیشین عمان انجام داد با پاکستان هم انجام دهد. در آن زمان خواستند عمان نامه‌ای به جمهوری اسلامی تحویل دهد و بعد ادعا کردند که ما چنین نامه‌ای ندادیم.
+https://iranintl.com/202605300571
+</div>
+
+## FarsiVOA — post 219124
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نخست وزیر لبنان از مذاکرات با اسرائیل دفاع کرد
+
+▪️نواف سلام، نخست‌وزیر لبنان از مذاکرات با اسرائیل که روز جمعه در پنتاگون برگزار شد، دفاع کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/israel-lebanon-us-pentagon-negotiations-hezbollah-/8155608.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219123
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Farsi VOA pinned an audio file
+</div>
+
+## FarsiVOA — post 219122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزیر جنگ آمریکا می‌گوید «تنگه هرمز» باز می‌شود و عوارضی هم در کار نخواهد بود
+
+▪️شبکه آمریکایی سی‌بی‌اس در گزارشی نوشت که موضوع بسته شدن تنگه هرمز به‌طور منظم در گفت‌وگوهای پیت هگست، وزیر دفاع آمریکا، با کشورهای دیگر در کنفرانس دفاعی شانگری‌لا در سنگاپور مطرح شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/hormuz-strait-raised-in-talks/8155610.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219121
+
+<div align="center">
+  <a href="https://t.me/farsivoa/219121" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴📢‌ پادکست خبری شنبه ۹ خرداد ۱۴۰۵
+
+🛜در صورتی که با مشکل اینترنت مواجه هستید میتوانید اخبار صدای آمریکا را از نسخه‌های پادکست خبری ما روزانه دنبال کنید و یا اخبار را از نسخه سبک وب‌سایت ما پیگیر باشید:
+https://ir.voanews.com/lite
+
+📡بروزترین فرکانسهای ماهواره‌ای را نیز میتوانید از صفحه زیر پیگیری کنید:
+https://ir.voanews.com/satellite
+
+🔔دیگر شبکه‌های اجتماعی ما هم دنبال کنید:
+https://linktr.ee/voafarsi
+
+
+
+ما را به اشتراک بگذارید
+@farsivoa
+</div>
+
+## DW_Farsi — post 125327
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125327_1780172801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "آمریکا یک کشتی که می‌خواست وارد یک بندر ایرانی شود را ازکار انداخت"
+
+آسوشیتدپرس به نقل از یک مقام مطلع آمریکا از وضعیت منطقه نوشت که ارتش این کشور یک کشتی تجاری دیگر را متوقف کرد که قصد شکستن محاصره بنادر ایران توسط ایالات متحده را داشت.
+
+این مقام که نخواست نامش فاش شود به این خبرگزاری گفت، کشتی فله‌بر "لیان استار" (Lian Star) که با پرچم گامبیا حرکت می‌کرد شب گذشته هشتم خرداد (۲۹ مه) هشدارهای متعدد نیروهای آمریکایی را هنگام تلاش برای ورود به یک بندر ایرانی نادیده گرفت.
+
+این مقام افزود که این کشتی توسط هواپیماهای آمریکایی در خلیج عمان از کار انداخته شده و در همان‌جا سرگردان است و نیروهای آمریکایی وارد عرشه نشده‌اند.
+
+فرماندهی مرکزی ایالات متحده آمریکا (سنتکام) در پیام رسان ایکس نوشت: «پس از آنکه خدمه کشتی از تبعیت از دستورات خودداری کردند، یک هواپیمای آمریکایی با شلیک یک موشک AGM-114 Hellfire به اتاق موتور کشتی، آن را از کار انداخت. این کشتی دیگر به سمت ایران در حرکت نیست.»
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/wwFLAgT9TwI?feature=share
+</div>
+
+## Persian_Trend_Official — post 15352
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15352_1780172802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با تموم شدن فینال جام باشگاه ها و تبریک به طرفداران پاریسن ژرمن حدود 30 دقیقه دیگه لایو رو آغاز میکنیم
+</div>
+
+## IranianMinds — post 21091
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21091_1780172802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ، باز هم به اوباما گیر داد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21090
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21090_1780172803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کنسرت امشب کانیه وست
+در فاصله ی ۲ ساعتیه ایران
+ترکیه
+
+- بختتو ایرانی
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21089
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21089_1780172804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عادی ترین فن جمهوری اسلامی :
+
+
+احمد ایراندوست : مشروبمو میخورم، کاباره‌مو میرم؛ دستبوس حاج قاسمم هستم
+
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282448
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سنتکام: یک کشتی با پرچم گامبیا که در حال حرکت به سمت ایران بود را از کار انداختیم
+
+فرماندهی مرکزی ارتش ایالات متحده اعلام کرده است که نیروهای آمریکایی دیروز(جمعه ۲۹ مه) در دریای عمان، با غیرفعال کردن یک کشتی که با پرچم گامبیا قصد داشت به سمت یک بندر ایرانی حرکت کند، محاصره دریایی را اعمال کردند.
+
+سنتکام می‌گوید کشتی «ام‌‌‌وی لیان استار» را در حال عبور از آب‌های بین‌المللی به سمت یک بندر ایرانی در خلیج عمان دیدند و ضمن اطلاع به این کشتی درباره نقض محاصره دریایی ایالات متحده، بیش از ۲۰ هشدار صادر کردند.
+
+این نهاد می‌گوید پس از آنکه خدمه کشتی از دستور سرپیچی کردند، یک هواپیمای آمریکایی با شلیک موشک هلفایر به موتورخانه، آن را از کار انداخت.
+
+سنتکام گفته است:«این کشتی دیگر به سمت ایران در حال حرکت نیست.»
+
+این نهاد همچنین گفته است: «نیروهای آمریکایی پنج کشتی تجاری را از کار انداخته و ۱۱۶ کشتی را مجبور به تغییر مسیر کرده‌اند تا محاصره را به طور کامل اجرا کنند، در حالی که آتش‌بس با ایران همچنان برقرار است.»
+
+https://trib.al/MeCHPFh
+@BBCPersian
+</div>
+
+## BBCPersian — post 282447
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282447_1780172805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز شنبه ۹ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390594
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390594_1780172807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها امید شیرابه‌های بجا مانده از زباله‌ی جمهوری اسلامی، یاُس و ناامیدی ماست!
+تراپی کنید ✌🏻
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390593
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390593_1780172808.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏نام اثر؛
+جدایی مجتبی از رهبر :))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390592
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390592_1780172809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیزارم اینو فراموش کنید
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113256
+
+<div align="center">
+  <img src="telegram/content/Hranews_113256_1780172809.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از «سوئیت ۳۵» زندان قزل‌حصار؛ از ازدحام جمعیت تا محرومیت زندانیان از حقوق اولیه
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– «سوئیت ۳۵» در واحد ۳ زندان قزل‌حصار کرج، بخشی که پیش‌تر عمدتاً برای نگهداری زندانیان در شرایط انفرادی، قرنطینه و پیش از اجرای حکم اعدام مورد استفاده قرار می‌گرفت، در ماه‌های اخیر به محل نگهداری شمار زیادی از بازداشت‌شدگان تبدیل شده است. گزارش‌های دریافتی هرانا از تراکم جمعیت، محرومیت زندانیان از برخی حقوق، گزارش‌هایی از ضرب و شتم و نامناسب بودن شرایط نگهداری در این بخش حکایت دارد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، افزایش شمار بازداشت‌ها به‌ویژه پس از اعتراضات و تحولات ماه‌های اخیر، به انتقال گسترده بازداشت‌شدگان به «سوییت ۳۵» #زندان_قزلحصار_کرج منجر شده است. گزارش‌های دریافتی هرانا از زندانیان سابق، خانواده‌ها و منابع مطلع، از تراکم شدید جمعیت، محرومیت از حقوق اولیه، برخوردهای خشونت‌آمیز و شرایط نامناسب نگهداری در این بند حکایت دارد.
+
+یک زندانی که به‌تازگی از این بند آزاد شده، در گفت‌وگو با هرانا اظهار داشت: «پیش از این، سوییت‌ها عمدتاً برای نگهداری محدود یا انفرادی پیش از اجرای حکم اعدام مورد استفاده قرار می‌گرفت، اما با افزایش بازداشت‌ها، در برخی موارد بیش از ۱۰ نفر در سلول‌هایی با مساحت حدود ۱۲ متر مربع نگهداری می‌شدند؛ به‌گونه‌ای که #زندانیان به سختی امکان استراحت داشتند.»
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از تجمع اعتراضی پرستاران در یزد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز شنبه، شماری از #پرستاران ساکن در یزد با برگزاری تجمع اعتراضی خواستار رسیدگی به مطالبات خود شدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در هشتمین روز بازداشت؛ تداوم بی خبری از وضعیت زهرا محمدولی در دهلران
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– زهرا محمدولی، شهروند ساکن دهلران، هشت روز است که توسط نیروهای امنیتی در این شهرستان #بازداشت شده‌ و کماکان از محل نگهداری وی اطلاعی حاصل نشده است. بی‌خبری از سرنوشت این شهروند، افزایش نگرانی‌های خانواده و بستگان او را در پی داشته است.
+
+ادامه مطلب
+
+#زهرا_محمدولی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123823
+
+<div align="center">
+  <a href="telegram/content/alonews_123823_1780172809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون سیاسی سپاه: ایران بر تنگه هرمز مسلط شده و پس از ۵۰۰ سال، به موقعیتی دست یافته که حق مسلم مردم ایران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123822
+
+<div align="center">
+  <a href="telegram/content/alonews_123822_1780172809.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه: میدان و دیپلماسی دوشادوش هم آماده برای هر وضعیتی
+
+
+🔴 سخنگوی ارتش: امروز دیپلماسی و میدان نزدیک‌تر و هماهنگ‌تر از هر زمانی در مسیر تحقق منافع و عزت ملی کشور می‌کوشند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123820
+
+<div align="center">
+  <a href="telegram/content/alonews_123820_1780172809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز یه مین دریایی ایرانی نزدیک سواحل عمان تو تنگه هرمز پیدا شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123819
+
+<div align="center">
+  <a href="telegram/content/alonews_123819_1780172811.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی:
+پیشرفت‌هایی در مذاکرات وجود دارد و ما این را انکار نمی‌کنیم، اما باید مراقب باشیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123818
+
+<div align="center">
+  <a href="telegram/content/alonews_123818_1780172811.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ در تروث‌سوشال: موزه ریاست جمهوری اوباما
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123817
+
+<div align="center">
+  <a href="telegram/content/alonews_123817_1780172811.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاویدنام حديثه اكبرزاده ، 18 دی در فرديس كرج با شليک مستقیم گلوله به سينه‌اش آسمانی شد.
+
+
+🤔عرزشی حرام زاده این دختر ایرانی تروریست بود؟ ظلم پایدار نیست به وقتش سر عزیزان شما هم میاد.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 123816
+
+<div align="center">
+  <a href="telegram/content/alonews_123816_1780172812.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بن گویر، وزیر امنیت ملی اسرائیل:
+«باید بیروت را صاف کنیم!»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123815
+
+<div align="center">
+  <a href="telegram/content/alonews_123815_1780172814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی کمیسیون امنیت ملی: محاصره دریایی یا با زور یا با مذاکره پایان خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی کمیسیون امنیت ملی: محاصره دریایی یا با زور یا با مذاکره پایان خواهد یافت
+</div>
+
+## alonews — post 123813
+
+<div align="center">
+  <a href="telegram/content/alonews_123813_1780172814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش: هرگونه تعرض به خاک کشور پاسخ محکم‌تر از گذشته را دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123812
+
+<div align="center">
+  <a href="telegram/content/alonews_123812_1780172814.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الحدث: درگیری‌های شدید بین حزب‌الله و نیروهای اسرائیلی در داخل شهرک دبین در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123811
+
+<div align="center">
+  <a href="telegram/content/alonews_123811_1780172814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت سد کرج طی سه ماه اخیر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123810
+
+<div align="center">
+  <a href="telegram/content/alonews_123810_1780172816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 اظهارات عجیب مشاور قالیباف درباره مذاکرات ایران و آمریک
+
+
+🔴توافق صرفاً یک تاکتیک برای خرید زمان و منابع است نه استراتژی صلح‌طلبانه
+
+
+🔴توافقی وجود ندارد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123809
+
+<div align="center">
+  <a href="telegram/content/alonews_123809_1780172816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ویرال شده از حرکت ورزشی یه پسر جوون توی ایران که شاهکار خلق کرده🔥
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 22:51
 ---
 
