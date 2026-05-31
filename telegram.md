@@ -7,6 +7,1095 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 21:00
+---
+
+## VahidOOnLine — post 243079
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243079_1780248621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت امتداد گزارش داد مسعود پیاهو، شهروندی که تصویر نشستن یک معترض مقابل نیروهای سرکوب در اعتراضات بازار در دی ۱۴۰۴ را ثبت کرده بود، به اتهام «همکاری با اسرائیل» به ۱۰ سال حبس محکوم شده است.
+
+حسن آقاخانی، وکیل این شهروند، عنوان کرده است موکل او این فیلم کوتاه را به صورت ناخودآگاه از آن صحنه ضبط کرده و قصد انتشار آن را نداشته و صرفا برای تعداد محدودی از دوستانش در استوری خصوصی اینستاگرام منتشر کرده است.
+
+به گزارش امتداد و به نقل از وکیل مسعود پیاهو، حکم ۱۰ سال حبس در شعبه ۹ دیوان تایید شده و به اجرای احکام رفته است و این شهروند باید خود را به زندان معرفی کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243078
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243078_1780248622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، رئیس‌جمهوری ایران، روز یکشنبه ۱۰ خرداد در پیامی در شبکه اجتماعی ایکس نوشت: «رویارویی با چالش‌های بزرگ بدون تحمل سختی‌ها امکان‌پذیر نیست.»
+پزشکیان که در روزهای اخیر اظهارنظرهای مختلفی درباره مشکلات اقتصادی و بحران‌های مختلفی مانند کمبود انرژی در ایران بیان کرده است، در این پیام نوشت: «رویارویی با چالش‌های بزرگ بدون تحمل سختی‌ها شدنی نیست. عبور از این مسیر پر فراز و نشیب تنها با آگاهی و همکاری عمومی ممکن است.»
+پزشکیان ادامه داد: «باید واقعیت‌های موجود را برای مردم تبیین کنیم تا همه بخش‌های جامعه در حل مشکلات مشارکت داشته باشند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243077
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243077_1780248622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شبکه سی‌ان‌ان، روز یکشنبه دهم خرداد ماه، به نقل از مقام‌های آمریکایی گزارش داد دونالد ترامپ پس از نشست روز جمعه با مشاوران خود، اصلاحاتی را به متن توافق احتمالی با ایران بازگردانده و به این ترتیب روند مذاکرات برای دست‌کم یک هفته دیگر ادامه خواهد یافت.
+
+بر اساس این گزارش، جزئیات دقیق تغییرات مورد نظر ترامپ هنوز مشخص نیست، اما مقام‌های آمریکایی گفته‌اند رئیس‌جمهور آمریکا بر درج مفاد سخت‌گیرانه‌تر درباره تعهدات هسته‌ای ایران و همچنین تضمین بازگشایی تنگه هرمز اصرار دارد.
+
+سی‌ان‌ان همچنین گزارش داد ترامپ درباره میزان تسهیلات و امتیازهای مالی که ممکن است در چارچوب توافق به ایران ارائه شود ابراز نگرانی کرده است. به گفته این شبکه، رئیس‌جمهوری آمریکا نمی‌خواهد توافق جدید با توافق هسته‌ای دوران باراک اوباما مقایسه شود. توافقی که ترامپ همواره از آن انتقاد کرده و آن را توافقی ضعیف توصیف کرده است.
+
+این گزارش می‌افزاید بازنگری‌های جدید ترامپ موجب شده رایزنی‌ها میان طرف‌های درگیر همچنان ادامه داشته باشد و مذاکرات وارد مرحله تازه‌ای شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243076
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243076_1780248623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه به ایران اینترنشنال خبر داد که مسعود پزشکیان، رئیس‌جمهوری ایران، با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای، رهبر جمهوری اسلامی، خواستار کناره‌گیری از سمت خود شد.
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، پزشکیان در این نامه که طی ساعات گذشته ارسال شده، با لحنی کم‌سابقه و انتقادی هشدار داده است که ساختار اداره کشور عملاً از مسیرهای رسمی خارج شده و بخش‌های اصلی حاکمیت تحت کنترل کامل طیفی خاص از فرماندهان سپاه پاسداران قرار گرفته است.
+هنوز روشن نیست که مجتبی خامنه‌ای با استعفای رئیس‌جمهوری موافقت خواهد کرد یا خیر، اما محتوای نامه از شکافی عمیق و بی‌سابقه در بالاترین سطوح قدرت در جمهوری اسلامی حکایت دارد.
+پزشکیان در این نامه تأکید کرده که رئیس‌جمهوری و دولت عملاً از روند تصمیم‌گیری‌های کلان و حیاتی کشور کنار گذاشته شده‌اند و خلأ ناشی از این وضعیت، زمینه را برای در دست گرفتن امور توسط جریان‌های افراطی در سپاه پاسداران فراهم کرده است. او همچنین تصریح کرده که در چنین شرایطی امکان اداره دولت و انجام مسئولیت‌های قانونی خود را ندارد و به همین دلیل خواستار کناره‌گیری فوری شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243075
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243075_1780248623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی دانون، سفیر اسرائیل در سازمان ملل، در شبکه اجتماعی ایکس نوشت: «درست در زمانی که یهودی‌ستیزی دوباره در حال افزایش است و نفرت از اسرائیل حتی از سوی برخی مسئولان منتخب نیز تشویق می‌شود، ما با قامتی استوار ایستاده‌ایم.»
+
+او افزود: «هیچ‌کس نمی‌تواند ما را وادار کند پرچم‌های اسرائیل را پایین بیاوریم؛ نه در نیویورک و نه در هیچ جای دیگری در جهان.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243074
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243074_1780248624.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسکات بسنت، وزیر خزانه‌داری ایالات متحده، روز یکشنبه دهم خرداد ماه، در گفتگو با برنامه «آینده‌های صبح یکشنبه» (Sunday Morning Futures)  شبکه فاکس گفت، از نظر رئیس‌جمهوری آمریکا، اتمام جنگ با ایران به معنای تضمین کامل و همیشگی باز بودن تنگه هرمز، جمع‌آوری تمام اورانیوم غنی‌شده ایران و اطمینان قطعی از این امر است که تهران هرگز به سلاح هسته‌ای دست پیدا نخواهد کرد.
+بسنت این دستاورد را «تحولی تاریخی» توصیف کرد و افزود به لطف رویکرد قاطعانه پرزیدنت ترامپ، «مقامات ایران برای نخستین بار در ۴۷ سال گذشته پای میز مذاکره آمده‌اند تا درباره نداشتن سلاح هسته‌ای گفتگو کنند.»
+این گفتگو درحالی صورت می‌گیرد که به گزارش رسانه‌های آکسیوس و نیویورک تایمز، دونالد ترامپ با ایجاد تغییراتی در متن توافق احتمالی واشنگتن با تهران، شرایط سخت‌تری را پیش روی رهبران جمهوری اسلامی ایران قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9949
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9949_1780248625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ملوانان آمریکایی یک فروند بالگرد MH-60S سی‌هاوک را هنگام فرود بر عرشه پروازی ناوشکن USS Milius (DDG 69) در جریان عملیات پروازی، در تاریخ ۲۹ مه هدایت می‌کنند. میلیوس در حال پشتیبانی از محاصره دریایی ایالات متحده علیه ایران است؛ محاصره‌ای که تا ۳۱ مه موجب تغییر مسیر ۱۱۸ کشتی تجاری و از کار افتادن ۵ کشتی شده است.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91959
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91959_1780248625.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عباس عراقچی: گفتگوها و تبادل پیام‌‌ها در جریان است و تا وقتی به نتیجه مشخص نرسه، نمیشه در موردش قضاوت کرد و هر آنچه که الان گفته میشه گمانه‌زنی است و نباید به آن اهمیت داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91958
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91958_1780248626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال: مسعود پزشکیان به علت تسلط کامل فرماندهان سپاه بر اداره امور کشور، با ارسال نامه‌ای به دفتر مجتبی خامنه‌ای خواهان استعفا از سمت خودش شده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#مهم
+عزیزای دلم همگی الان چنل زاپاس‌مون رو جوین بشید کانال تحت ریپورت شدیده اگه چیزی شد زاپاس رو داشته باشید فعالیت میاد اونور
+👇
+
+https://t.me/Pm_Zapas
+https://t.me/Pm_Zapas
+</div>
+
+## pm_afshaa — post 91955
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91955_1780248626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ پستی از نیوت گینگریچ را بازنشر کرد که در آن گفته است ترامپ «در آستانه یک پیروزی تاریخی» در ایران است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خزانه‌داری آمریکا: فشارها بر ایران و جلوگیری از صادرات نفت از جزیره خارک ادامه دارد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91953
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91953_1780248627.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران اینترنشنال: مسعود پزشکیان به علت تسلط کامل فرماندهان سپاه بر اداره امور کشور، با ارسال نامه‌ای به دفتر مجتبی خامنه‌ای خواهان استعفا از سمت خودش شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت لبنان بعد از حمله هوایی اسراییل به این کشور 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91951
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91951_1780248628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهاجرانی، سخنگوی دولت:
+قالیباف کسی است که فرمانده میدان بوده و عراقچی هم رزمنده زمان جنگ است، بنابراین تمام کسانی که الان درگیر مذاکره هستن، میدان رو به‌خوبی درک می‌کنند.
+
+نیروهای مسلح ایران همچنان دست‌به‌ماشه هستن و تیم دیپلماسی با همین نگاه، مذاکرات رو دنبال میکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5190
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5190_1780248628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺 
+🕐 موسیقی در دوران استبداد، نقش ساز، صدا و هنر در تقویت جنبش‌های آزادیخواهانه
+هر یکشنبه و پنجشنبه هر هفته بعد از خبر ۲۱
+
+#ایران_را_پس_میگیریم
+#زیرصدا
+@DEJradio
+</div>
+
+## DEJradio — post 5189
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5189_1780248630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+🔴 شکاف در صف حامیان نظام؛ یکی از هواداران ولایت با انتقاد از مذاکرات مقامات با قاتلان خامنه‌ای خطاب به ته مانده مسئولان نظام می‌گوید: "مردم رو نفهم فرض نکنید"
+
+#مزدوران
+@DEJradio
+</div>
+
+## DEJradio — post 5188
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5188_1780248632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📺 
+🕐 مهمان برنامه نیمکت، احمد باطبی روزنامه‌نگار و فعال حقوق بشر است. او در این برنامه به واکاوی تحولات جنبش دانشجویی و دگرگونی دانشگاه‌ها پرداخته است.
+«نیمکت» برنامه مشترک خبرنامه امیرکبیر و تلویزیون دژ است و بر مبارزات دانشجویی تمرکز دارد.
+این برنامه هر یکشنبه بعد از خبر ۲۱ پخش می‌شود.
+
+#نیمکت
+@DEJradio
+</div>
+
+## DEJradio — post 5187
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5187_1780248634.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸
+🔺 فاطمه مهاجرانی سخنگوی دولت درباره دلایل افزایش گرانی گفت «وقتی جریان عرضه و تقاضا دچار مشکل می‌شود بازار واکنش نشان می‌دهد.»
+او با اشاره به محاصره دریایی بنادر جمهوری اسلامی، ادامه داد: «دزدی دریایی آمریکا تاثیر می‌گذارد که ورود کمتر شود.»
+این در حالیست که برخی مقامات جمهوری اسلامی ادعا می‌کنند «محاصره دریایی» شکست خورده است. بعضی نمایندگان مجلس شورای اسلامی نیز ادعا کرده بودند نظام راهکار شکستن محاصره دریایی را می‌داند.
+
+#محاصره_دریایی #گرانی
+@DEJradio
+</div>
+
+## DEJradio — post 5186
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5186_1780248634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸
+🔺 براساس گزارش‌های مردمی بعد از جنگ ۴۰ روزه وضعیت آب سدها و دریاچه‌ها بهتر شده است. برخی منابع می‌گویند حدود ۷۰ درصد ظرفیت مخزن سد کرج تا ۱۰ خرداد پر شده است.
+
+#کرج #آب
+@DEJradio
+</div>
+
+## VahidOnline — post 75822
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75822_1780248635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+IranIntlbrk
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339915
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339915_1780248635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه به ایران‌اینترنشنال خبر داد مسعود پزشکیان با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای خواستار کناره‌گیری از سمت خود شده است.
+
+براساس اطلاعات رسیده به ایران‌اینترنشنال، پزشکیان در این نامه هشدار داده ساختار اداره کشور عملا از مسیرهای رسمی خارج شده و بخش‌های اصلی حاکمیت تحت کنترل کامل طیفی از فرماندهان سپاه پاسداران قرار گرفته است.
+
+گفت‌وگو با مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339914
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339914_1780248637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت امتداد گزارش داد مسعود پیاهو، شهروندی که تصویر نشستن یک معترض مقابل نیروهای سرکوب در اعتراضات بازار در دی ۱۴۰۴ را ثبت کرده بود، به اتهام «همکاری با اسرائیل» به ۱۰ سال حبس محکوم شده است.
+
+حسن آقاخانی، وکیل این شهروند، عنوان کرده است موکل او این فیلم کوتاه را به صورت ناخودآگاه از آن صحنه ضبط کرده و قصد انتشار آن را نداشته و صرفا برای تعداد محدودی از دوستانش در استوری خصوصی اینستاگرام منتشر کرده است.
+
+به گزارش امتداد و به نقل از وکیل مسعود پیاهو، حکم ۱۰ سال حبس در شعبه ۹ دیوان تایید شده و به اجرای احکام رفته است و این شهروند باید خود را به زندان معرفی کند.
+https://iranintl.com/202605316094
+</div>
+
+## IranIntlTV — post 339913
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339913_1780248638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در شبکه‌های اجتماعی، دود غلیظ ناشی از آتش‌سوزی را در حوالی اتوبان ستاری تهران در روز یک‌شنبه ۱۰ خرداد نشان می‌دهد.
+
+جلال ملکی، سخنگوی سازمان آتش‌نشانی شهرداری تهران، در این‌باره گفت: مقادیری لاستیک و روغن در پارکینگ ساختمانی نگهداری می‌شده که به دلایل نامشخص دچار آتش‌سوزی شده است. این حادثه مصدومیت و تلفات جانی نداشته است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339912
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339912_1780248639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر اول با نیوشا صارمی، یکشنبه ۱۰ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339911
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339911_1780248640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آگاه به ایران اینترنشنال خبر داد که مسعود پزشکیان، رئیس‌جمهوری ایران، با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای، رهبر جمهوری اسلامی، خواستار کناره‌گیری از سمت خود شد.
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، پزشکیان در این نامه که طی ساعات گذشته ارسال شده، با لحنی کم‌سابقه و انتقادی هشدار داده است که ساختار اداره کشور عملاً از مسیرهای رسمی خارج شده و بخش‌های اصلی حاکمیت تحت کنترل کامل طیفی خاص از فرماندهان سپاه پاسداران قرار گرفته است.
+هنوز روشن نیست که مجتبی خامنه‌ای با استعفای رئیس‌جمهوری موافقت خواهد کرد یا خیر، اما محتوای نامه از شکافی عمیق و بی‌سابقه در بالاترین سطوح قدرت در جمهوری اسلامی حکایت دارد.
+پزشکیان در این نامه تأکید کرده که رئیس‌جمهوری و دولت عملاً از روند تصمیم‌گیری‌های کلان و حیاتی کشور کنار گذاشته شده‌اند و خلأ ناشی از این وضعیت، زمینه را برای در دست گرفتن امور توسط جریان‌های افراطی در سپاه پاسداران فراهم کرده است. او همچنین تصریح کرده که در چنین شرایطی امکان اداره دولت و انجام مسئولیت‌های قانونی خود را ندارد و به همین دلیل خواستار کناره‌گیری فوری شده است.
+https://iranintl.com/
+</div>
+
+## IranIntlTV — post 339910
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339910_1780248640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی دانون، سفیر اسرائیل در سازمان ملل، در شبکه اجتماعی ایکس نوشت: «درست در زمانی که یهودی‌ستیزی دوباره در حال افزایش است و نفرت از اسرائیل حتی از سوی برخی مسئولان منتخب نیز تشویق می‌شود، ما با قامتی استوار ایستاده‌ایم.»
+
+او افزود: «هیچ‌کس نمی‌تواند ما را وادار کند پرچم‌های اسرائیل را پایین بیاوریم؛ نه در نیویورک و نه در هیچ جای دیگری در جهان.»
+https://iranintl.com/202605317796
+</div>
+
+## Shin_Persian — post 6331
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: ایران اینترنشنال - خبر فوری ✓ @IranIntlbrk Sun, 31 May 2026 16:40:46 UTC یک منبع آگاه به ایران اینترنشنال خبر داد که مسعود پزشکیان، رئیس‌جمهوری ایران، با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای، رهبر جمهوری اسلامی، خواستار کناره‌گیری از…
+</div>
+
+## Shin_Persian — post 6330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+ایران اینترنشنال - خبر فوری ✓ @IranIntlbrk
+Sun, 31 May 2026 16:40:46 UTC
+
+یک منبع آگاه به ایران اینترنشنال خبر داد که مسعود پزشکیان، رئیس‌جمهوری ایران، با ارسال نامه‌ای رسمی به دفتر مجتبی خامنه‌ای، رهبر جمهوری اسلامی، خواستار کناره‌گیری از سمت خود شد.
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، پزشکیان در این نامه که طی ساعات گذشته ارسال شده، با لحنی کم
+
+↩️ Quoted tweet — see the post below for the reply.
+
+English
+
+An informed source told Iran International that Masoud Pezeshkian, the President of Iran, sent an official letter to the office of Mojtaba Khamenei, the Supreme Leader of the Islamic Republic, requesting to resign from his position.
+
+According to information obtained by Iran International, in this letter sent within the past few hours, Pezeshkian, with a tone...
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6329
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 17:04:32 UTC
+
+Lots of people tweeting the Jordanian flag with a missing star, do they have a problem with Jordan?
+
+فارسی
+
+افراد زیادی در حال توئیت کردن پرچم اردن بدون ستاره هستند، آیا آن‌ها با اردن مشکلی دارند؟
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6328
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6328_1780248641.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sun, 31 May 2026 16:59:05 UTC
+
+USS Milius is supporting the U.S. blockade against Iran. As of May 31, the blockade has redirected 118 commercial vessels and disabled 5.
+
+Source: https://x.com/i/web/status/2061130303352050177
+
+فارسی
+
+ناو یو‌اس‌اس میلیوس (USS Milius) از محاصره ایالات متحده علیه ایران حمایت می‌کند. تا تاریخ ۳۱ مه، این محاصره باعث تغییر مسیر ۱۱۸ کشتی تجاری و از کار افتادن ۵ کشتی شده است.
+
+منبع: https://x.com/i/web/status/2061130303352050177
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 21:03:59 UTC Source tells me that an Iranian Lieutenant has been killed by shrapnel. Qeshm island, Hormozgan Province, #Iran ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی منابع به من…
+</div>
+
+## Shin_Persian — post 6326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 21:03:59 UTC
+
+Source tells me that an Iranian Lieutenant has been killed by shrapnel.
+Qeshm island, Hormozgan Province, #Iran
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+منابع به من خبر می‌دهند که یک ستوان ایرانی بر اثر اصابت ترکش کشته شده است.
+جزیره قشم، استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور حکم اعدام علیه دو جوان ۲۰ ساله به اتهام «جاسوسی»؛ ماشین مرگ جمهوری اسلامی سر ایستادن ندارد
+
+◾️در ادامه موج اتهام‌زنی‌های بی‌اساس و صدور احکام اعدام برای مخالفان و معترضان رژیم، قوه قضائیه جمهوری اسلامی حسن و حسین امیری، برادران دوقلوی ۲۰ ساله، را به «جاسوسی برای اسرائیل» متهم و آنها را به اعدام محکوم کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-issues-death-sentences-to-two-20-year-olds/8155805.html
+</div>
+
+## FarsiVOA — post 219190
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219190_1780248641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل تصاویری از فعالیت نیروهایش در قلعه بوفور منتشر کرده است.
+نیروهای ارتش اسرائیل پیشتر ارتفاعات بوفور را تصرف کردند. هدف اصلی این عملیات نابودی زیرساخت‌های حزب‌الله بود که با هدایت جمهوری اسلامی در این منطقه ایجاد شده است.
+
+تصرف بوفور پس از روزها نبرد شدید در روستاهای اطراف و عبور نیروهای اسرائیلی از رودخانه لیتانی انجام شد؛ عمیق‌ترین پیشروی اسرائیل در لبنان طی ۲۶ سال گذشته.
+
+این قلعه ۱۲ قرن قدمت دارد و یونسکو آن را به رسمیت می‌شناسد و نزدیک شهر نبطیه و در فاصله حدود ۱۴ کیلومتری از مرز اسرائیل قرار دارد.
+</div>
+
+## FarsiVOA — post 219189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌و‌گو با آلان توفیقی، تحلیلگر سیاسی از پاریس، درباره اظهارات قالیباف و دیگر مذاکره‌کنندگان جمهوری اسلامی و تاثیر احتمالی آن بر مواضع پرزیدنت ترامپ
+</div>
+
+## FarsiVOA — post 219188
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور حکم خلع لباس علیه یک روحانی اهل سنت به دلیل «عزاداری نکردن» برای مرگ خامنه‌ای
+
+◾️رسانه‌های حقوق بشری روز یکشنبه ۱۰ خرداد اعلام کردند که دادگاه‌ ویژه روحانیت رژیم جمهوری اسلامی، عثمان ذاکری، روحانی سنی اهل بوکان، را به «خلع لباس» و «اخراج از مسجد» محکوم کرده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/disrobing-sunni-cleric-iran-religious-minorities-mourning-for-khamenei/8155800.html
+</div>
+
+## FarsiVOA — post 219187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌و‌گو با دکتر مازیار صدری، فوق تخصص مراقبت‌های ویژه، درباره پیامدهای بالا رفتن هزینه درمان در ایران که سبب شده است بیماران قید مداوا شدن را بزنند.
+</div>
+
+## FarsiVOA — post 219186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تکمیل طرح محدود کردن سلاح گروەهای مسلح عراق؛ الزیدی: «عصائب اهل حق» هم تسلیم خواهد شد
+</div>
+
+## FarsiVOA — post 219185
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219185_1780248643.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی از حملات به زیرساخت‌های سازمان تروریستی حزب‌الله در صور و مناطق دیگر در جنوب لبنان، اعلام کرد از زمان اجرای آتش‌بس تاکنون «۹۰۰ تروریست حزب‌الله» را از بین برده است.
+
+جنگ میان حزب‌الله و ارتش اسرائیل به رغم تمدید آتش‌بس همچنان ادامه دارد و در همین راستا، در روزهای اخیر ارتش اسرائیل چندین هشدار تخلیه برای مناطق مختلف لبنان صادر کرد. نتانیاهو نیز بر گسترش عملیات اسرائیل در جنوب لبنان تأکید کرد.
+</div>
+
+## DW_Farsi — post 125352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 گزارش سی‌ان‌ان از بازگشایی پایگاه‌های موشکی زیرزمینی ایران
+ 
+سی‌ان‌ان در گزارشی نوشت ایران پس از هفته‌ها بمباران آمریکا و اسرائیل، با استفاده از تجهیزات ساده‌ای مانند بولدوزر و کامیون، در حال بازگشایی زردخانه‌های مدفون خود است و همین موضوع محدودیت‌های راهبرد بمباران آمریکا را آشکار کرده است.
+ 
+بر اساس این گزارش، تصاویر ماهواره‌ای نشان می‌دهند ایران تاکنون ۵۰ ورودی از ۶۹ ورودی تونل را در ۱۸ سایت موشکی زیرزمینی که هدف حمله قرار گرفته بودند، دوباره باز کرده است.
+ 
+در این گزارش آمده است آمریکا  و اسرائیل در هفته‌های نخست جنگ، برای محدود کردن توان موشکی ایران، جاده‌ها را منهدم و دهانه تونل‌های پایگاه‌های زیرزمینی را مسدود کردند. اما تصاویر ماهواره‌ای نشان می‌دهند ایران با ابزارهای ساده توانسته بخش قابل توجهی از این مسیرها را دوباره باز کند.
+ 
+علاوه بر ورودی تونل‌ها، بخش‌هایی از جاده‌هایی که برای جلوگیری از حرکت پرتابگرهای موشکی  بمباران شده بودند نیز ترمیم شده‌اند. به گفته سی‌ان‌ان، تقریبا همه گودال‌های ایجادشده در این مسیرها پر شده و در دو نقطه، حتی آسفالت‌ریزی دوباره انجام شده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15412
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15412_1780248645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیک نیوز=ایران اینترنشنال: مسعود پزشکیان بخاطر ورود سپاه به تمامی مسائل کشور و دخالت در کارای دولت نامه استعفا خودشو به مجتبی خامنه‌ای تحویل داد.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15411
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15411_1780248645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ: ایالات متحده اعلام کرده است که هرگونه توافق با ایران برای عبور امن از تنگه هرمز ممنوع است، حتی اگر این توافق شامل پرداخت پول یا عوارض نباشد.
+
+به گزارش بلومبرگ وزارت خزانه‌داری آمریکا در بیانیه‌ای که در 29 مه منتشر شد تأکید کرد: صرف‌نظر از اینکه پرداختی انجام شود یا نه، اشخاص آمریکایی از دریافت هرگونه خدمات از دولت ایران منع شده‌اند، از جمله خدمات مربوط به تضمین عبور ایمن.
+
+این تصمیم در حالی اتخاذ شده که تنش‌ها میان آمریکا و ایران ادامه دارد و موضوع عبور کشتی‌ها از تنگه هرمز به یکی از مسائل اصلی تبدیل شده است.
+
+بر اساس این دستور شرکت‌ها و افراد آمریکایی نمی‌توانند برای عبور امن با ایران مذاکره کنند، حتی دریافت تضمین امنیت بدون پرداخت پول هم ممنوع است، پرداخت عوارض یا هزینه به ایران نیز مشمول تحریم‌ها می‌شود
+
+این اقدام نشان می‌دهد که واشنگتن عملاً هیچ‌گونه نقش یا اختیار ایران در کنترل عبور و مرور در تنگه هرمز را به رسمیت نمی‌شناسد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15410
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15410_1780248646.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇹🇭
+⚡️ — ایالات متحده و تایلند در حال مذاکره بر سر یک توافق بلندمدت جدید برای عرضه گاز طبیعی مایع‌شده آمریکا هستند، زیرا نگرانی‌ها درباره امنیت انرژی پس از آسیب به زیرساخت‌های LNG قطر و ناپایداری در اطراف تنگه هرمز در جریان جنگ ایران افزایش یافته است، رویترز گزارش می‌دهد.
+
+➡️ مذاکرات بر روی یک قرارداد الزام‌آور بلندمدت بین شرکت Venture Global و شرکت دولتی انرژی تایلند، PTT Public Company Limited، متمرکز است.
+
+➡️ قراردادهای مورد بحث احتمالاً برای ۱۵ سال یا بیشتر اجرا خواهند شد، اگرچه حجم‌ها و زمان‌بندی‌های دقیق اعلام نشده است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## RadioFarda — post 157749
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157749" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا، دهم خرداد ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان: تداوم فشارهای خارجی اداره کشور را پیچیده کرده است
+
+🔸مسعود پزشکیان، رئیس‌جمهور ایران، روز یکشنبه گفت فشارهای خارجی و محدود شدن دسترسی دولت به منابع اقتصادی باعث مشکلاتی در اداره کشور شده است.
+
+🔸محاصره دریایی آمریکا علیه بنادر ایران که از اواخر فروردین با دستور رئیس‌جمهور ایالات متحده آغاز شده است، بر اساس گزارش‌ها باعث کاهش شدید صادرات نفت و سقوط درآمدهای ارزی دولت جمهوری اسلامی شده است. این محاصره که توسط نیروهای نظامی آمریکا اعمال می‌شود، حرکت کشتی‌های تجاری از مبدأ و به مقصد ایران را محدود کرده است.
+
+🔸پزشکیان در جلسه هیئت دولت جمهوری اسلامی با اشاره به این که محدودیت‌های بیرونی دلیل بخشی از مشکلات اقتصادی است، گفت: «تداوم برخی محدودیت‌ها و فشارهای خارجی، به‌ویژه در حوزه دسترسی به منابع و ظرفیت‌های اقتصادی، پیچیدگی‌های خاصی را برای اداره کشور ایجاد کرده است.»
+
+🔸او در ادامه خواستار آن شد که مردم درباره «واقعیت‌های موجود» مطلع شوند و گفت که «جامعه باید نسبت به الزامات و هزینه‌های مقاومت آگاه باشد».
+
+🔸این در حالی است که بر اساس گزارش‌ها، دونالد ترامپ، رئیس‌جمهور آمریکا، تفاهم‌نامه برای تمدید آتش‌بس با ایران را با شرایطی «سخت‌تر» دوباره به تهران فرستاده است.
+
+🔸او همچنین تهدید کرده که اگر توافق با ایران مطابق میل واشینگتن نباشد و باعث جلوگیری از دسترسی ایران به سلاح هسته‌ای نشود، احتمال ازسرگیری اقدام نظامی وجود دارد.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21155
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21155_1780248646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چند روز پیش دو تا داداش اسرائیلی دستگیر شدن
+
+حالا دلیلش چی بوده ؟ با کمک چت جی پی تی و گوگل‌مپ میومدن اطلاعات ساختگی از خودشون در میاوردن و میفروختن به جمهوری اسلامی در طول جنگ این کسخلام باور کرده بودن و نمیدونسن اصلا چیه و بر طبق اطلاعات اینا میومدن موشک پرتاب میکردن به سمت مختصاتی که اینا میدادن :)))
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21154
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21154_1780248647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پیاهو، مردی که تصویر معترض نشسته مقابل نیروهای پلیس یگان ویژه در مقابل پاساژ علاالدین در آغاز اعتراضات دی ماه سال گذشته رو منتشر کرد، به گفته وکیلش به ۱۰ سال زندان محکوم شده!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21153
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21153_1780248647.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## IranianMinds — post 21152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مهاجرانی، سخنگوی دولت:
+قالیباف کسی است که فرمانده میدان بوده و عراقچی هم رزمنده زمان جنگ است، بنابراین تمام کسانی که الان درگیر مذاکره هستن، میدان رو به‌خوبی درک می‌کنند.
+
+نیروهای مسلح ایران همچنان دست‌به‌ماشه هستن و تیم دیپلماسی با همین نگاه، مذاکرات رو دنبال میکنه.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282509
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282509" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻پادکست جام جهان‌نما، یکشنبه ۱۰ خرداد ۱۴۰۵
+
+پادکست جام جهان‌نما، یکشنبه ۱۰ خرداد ۱۴۰۵ این برنامه رادیویی را می‌توانید هرشب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه۹۴۶۵ کیلوهرتز بشنوید.
+
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بر اساس گزارش‌ها وقوع انفجاری در منطقه تحت کنترل شورشیان میانمار بیش از پنجاه نفر را کشته است.
+
+این انفجار در ایالت شان، نزدیک مرز چین، رخ داده است. تصاویر نشان می‌دهد که دود غلیظی به آسمان بلند شده و ساختمان‌ها در منطقه‌ای وسیع تخریب شده‌اند.
+
+محل انفجار نزدیک شهر نام خام است که در کنترل ارتش آزادی‌بخش ملی تانگ یکی از قدرتمندترین گروه‌های مسلح مخالف دولت نظامی میانمار است.
+
+برخی گزارش‌ها حاکی است که انفجار در یک انبار مهمات رخ داده است اما شورشیان می‌گویند که این انفجار ناشی از انفجار تصادفی مواد منفجره بوده است.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 282507
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282507_1780248648.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رژه پیروزی آرسنال با شور و هیجان در حال برگزاری است و بازیکنان با اتوبوس‌های روباز در شمال لندن حرکت می‌کنند .
+ 
+دود قرمز هوا را پر کرده است زیرا هزاران هوادار برای پیوستن به جشن‌ها در خیابان‌ها صف کشیده‌اند.
+ 
+یکی از هواداران، جرالدین، به ما می‌گوید: «تیم ما دوباره به اوج رسیده است.» دیگری، لی، می‌گوید: «من 20 سال برای این لحظه صبر کردم.»
+ 
+همچنین تیم زنان آرسنال که در ماه فوریه اولین جام قهرمانان زنان را بالای سر برد، در این رژه جشن می‌گیرند.
+ 
+یکی از هواداران جوان به بی‌بی‌سی می‌گوید: «من داشتم برای [آلسیا] روسو دست تکان می‌دادم، او هم دست تکان داد.»
+ 
+جشن‌های امروز پس از فینال نفس‌گیر لیگ قهرمانان اروپا در روز شنبه برگزار می‌شود که در آن پاری سن ژرمن در ضربات پنالتی آرسنال را شکست داد.
+
+@bbcpersian
+</div>
+
+## idfinfarsi — post 11687
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11687_1780248650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️مستندات جدید: نیروهای یگان گشتی گولانی در قلعه بوفور
+</div>
+
+## idfinfarsi — post 11686
+
+<div align="center">
+  <a href="telegram/content/idfinfarsi_11686_1780248651.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۹۰۰ تروریست حزب‌الله از زمان اجرای آتش‌بس به هلاکت رسیدند:
+
+🔸ارتش اسرائیل از ساعات صبح امروز زیرساخت‌های سازمان تروریستی حزب‌الله را در صور و مناطق دیگر در جنوب لبنان مورد حمله قرار داد
+
+🔸به موازات تعمیق فعالیت نیروهای ما در رشته‌کوه بوفور، ارتش اسرائیل از صبح امروز به انبارهای سلاح، مقرهای مستقر و زیرساخت‌های اضافی سازمان تروریستی حزب‌الله در منطقه صور و سایر مناطق جنوب لبنان حمله کرد.
+
+🔸انبارهای هدف قرارگرفته توسط تروریست‌های این سازمان برای پیشبرد و اجرای طرح‌های تروریستی علیه نیروهای ارتش اسرائیل مورد استفاده قرار می‌گرفتند
+</div>
+
+## Dirty_Kids — post 390670
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390670_1780248653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صحبتای ایشون خیلی وایرال شده و نظر خیلیارو جذب کرده.
+
+جذاب‌ترین چیز توی این زمونه برای دخترا اینه که بهشون «نه» بگی! از بس اکثر مردا جلو دخترا خم شدن توقعات بالا رفته.
+رفیق دخترِ من بعد از حموم استوری گذاشت از خودش و از ۳۰۰ فالور ۵۰ تا بهش دایرکت دادن! همین باعث میشه دخترا فکر کنن همه اونارو میخوان.
+سر همین فکر میکنن هیچکس لایق این نیست باهاشون باشه و هر نفرو برای یه چیزی انتخاب میکنن، یه پسرو برای مسائل مالی، یکیو برای محبت، یکی برای مسئله جنسی و...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390669
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390669_1780248653.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آهنگ «بزن که خوب می‌زنی» 😂😂 از حامد فرد
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390668
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390668_1780248655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیده شده امروز در تهران:))))))))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390667
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390667_1780248655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایران اینترنشنال: مسعود پزشکیان بخاطر ورود سپاه به تمامی مسائل کشور و دخالت در کارای دولت نامه استعفا خودشو به مجتبی خامنه‌ای تحویل داد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390666
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390666_1780248656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عجب خایه‌ای دارید؛ یه وقت نگیرنتون، تو روز روشن با چادر توی سطح شهر تردد می‌کنید. فکر میکنم اینکه امثال اینا کافه رفتن رو افتخار میدونن ناشی از احساس طرد شدگی در جامعه‌ست که خودشون به این نتیجه رسیدن کافه جای اونا نیست ﻿ + با امریکا مبارزه میکنن با وسایل…
+</div>
+
+## Dirty_Kids — post 390664
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390664_1780248656.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق تحقیقات دانشگاه پنسیلوانیا آمریکا
+🇺🇸، تو عرقِ زیر بغل مردها یه سری مواد شیمیایی هست که می‌تونه روی حال و بدن زن‌ها اثر مثبت بزاره؛
+
+طِی این آزمایش، یه عصاره از عرق مردها رو به لب بالای خانم‌ها زدن و بعدش بعضی از خانم‌ها متوجه شدن استرسشون کمتر شده و حس آرامش بیشتری پیدا کردن.
+این مواد روی بعضی هورمون‌های بدن خانم‌ها مثل هورمون‌های مرتبط با چرخه قاعدگی هم اثر می‌ذاره و همچنین باعث تسکین درد میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390663
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/390663" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390662
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390662_1780248657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390661
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390661_1780248657.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این تصویر که میبینید اولین جلسه مجلس شورای اسلامیه که فقط با حضور ۱۴ نماینده برگزار شده.
+
+۱۸۷ نماینده به صورت آنلاین شرکت کردن و ۹۳ نماینده دیگه حتی به صورت آنلاین هم حاضر نشدن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازماندگی از تحصیل بیش از ۱۵۰۰ دانش‌آموز در استان مرکزی
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– مدیرکل بهزیستی استان مرکزی اعلام کرد که ۱۵۹۸ دانش‌آموز در این استان از تحصیل بازمانده‌اند.
+
+ادامه مطلب
+
+#دانش‌آموزان
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اعتراضات ۱۴۰۴؛ تایید حکم ۱۰ سال حبس مسعود پیاهو در دیوان عالی کشور
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– محکومیت حبس مسعود پیاهو، از بازداشت‌شدگان اعتراضات سراسری دی‌ماه ۱۴۰۴، توسط شعبه ۹ دیوان عالی کشور عینا تایید شد. وی پیشتر توسط شعبه ۲۳ دادگاه انقلاب تهران به ۱۰ سال حبس محکوم شده بود.
+
+ادامه مطلب
+
+#مسعود_پیاهو
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113284
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنندج؛ وریا موید و جمال خداکرمی آزاد شدند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– وریا موید و جمال خداکرمی که در جریان اعتراضات سراسری ۱۴۰۴، در سنندج بازداشت شده بودند، با تودیع وثیقه آزاد شدند.
+
+ادامه مطلب
+
+#وریا_موید #جمال_خداکرمی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124008
+
+<div align="center">
+  <a href="telegram/content/alonews_124008_1780248658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران اینترنشنال: پزشکیان به خاطر تسلط کامل سپاه بر اداره کشور درخواست استعفا از سمت خودش رو داده. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124007
+
+<div align="center">
+  <a href="telegram/content/alonews_124007_1780248658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سنتکام: 118 کشتی تجاری رو برگردوندیم و 5تا رو هم توقیف کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124006
+
+<div align="center">
+  <a href="telegram/content/alonews_124006_1780248658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران اینترنشنال: پزشکیان به خاطر تسلط کامل سپاه بر اداره کشور درخواست استعفا از سمت خودش رو داده. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124005
+
+<div align="center">
+  <a href="telegram/content/alonews_124005_1780248658.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایران اینترنشنال: پزشکیان به خاطر تسلط کامل سپاه بر اداره کشور درخواست استعفا از سمت خودش رو داده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124004
+
+<div align="center">
+  <a href="telegram/content/alonews_124004_1780248659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جروزالم پست:
+منابع به واشنگتن پست مدعی شدند که مجتبی خامنه‌ای، رهبر ایران، هنوز به آخرین پیشنهادات ایالات متحده، از جمله تفاهم‌ نامه‌ای که در جریان مذاکرات اخیر مورد توافق قرار گرفت، پاسخی نداده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124002
+
+<div align="center">
+  <a href="telegram/content/alonews_124002_1780248659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ پست نیوت گینگریچ را دوباره منتشر کرد که در آن می گوید ترامپ "در آستانه پیروزی تاریخی" در ایران است.‌‌
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124001
+
+<div align="center">
+  <a href="telegram/content/alonews_124001_1780248659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خزانه‌داری آمریکا: فشارها بر ایران و جلوگیری از صادرات نفت از جزیره خارک ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124000
+
+<div align="center">
+  <a href="telegram/content/alonews_124000_1780248659.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع اسرائیل دستور حملات گسترده در سراسر لبنان را در 24 ساعت آینده صادر کرده است،مردم دو شهر بزرگ نبطیه و صور در جنوب لبنان در حال تخلیه فوری می‌باشند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123998
+
+<div align="center">
+  <a href="telegram/content/alonews_123998_1780248659.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بندر غزه هدف حمله هوایی قرار گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123997
+
+<div align="center">
+  <a href="telegram/content/alonews_123997_1780248660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر دفاع چین:
+اگرحاکمیت چین بر تایوان نقض شود پایگاه های نظامی ایالات متحده در ژاپن و کره جنوبی به اهداف مشروع تبدیل خواهد شد
+
+
+🔴پکن هیچ مداخله خارجی را نخواهد پذیرفت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 19:45
 ---
 
@@ -1292,8 +2381,6 @@ G10
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
